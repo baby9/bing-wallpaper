@@ -1,0 +1,7 @@
+## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_1920x1080.jpg&w=1000)Today: [Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)](https://www.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MardiGrasNOLA_EN-US2138635038_1920x1080.jpg&w=1000)Feb-21: [French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasNOLA_EN-US2138635038_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_1920x1080.jpg&w=1000)Feb-20: [Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)](https://www.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_1920x1080.jpg&w=1000)Feb-19: [Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)](https://www.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.EbenIceCave_EN-US1839710567_1920x1080.jpg&w=1000)Feb-18: [Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)](https://www.bing.com/th?id=OHR.EbenIceCave_EN-US1839710567_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_1920x1080.jpg&w=1000)Feb-17: [Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)](https://www.bing.com/th?id=OHR.BirdcountAllen_EN-US1766542066_UHD.jpg)
