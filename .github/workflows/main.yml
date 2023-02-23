@@ -1,0 +1,31 @@
+# This workflow will build a Java project with Maven
+# For more information see: https://help.github.com/actions/language-and-framework-guides/building-and-testing-java-with-maven
+
+name: Update Action
+
+on:
+  schedule:
+    # * is a special character in YAML so you have to quote this string
+    - cron:  '0 9 * * *'
+
+jobs:
+  build:
+
+    runs-on: ubuntu-latest
+
+    steps:
+    - uses: actions/checkout@v2
+    - name: Update bing wallpaper
+      run: bash ./main.sh
+    - name: Commit files
+      run: |
+         git config --global user.email ${{ secrets.MY_EMAIL }}
+         git config --global user.name ${{ secrets.MY_ID }}
+         git pull
+         git add .
+         git commit -m "update files"
+    - name: Push changes
+      uses:  ad-m/github-push-action@master
+      with:
+         github_token: ${{ secrets.MY_GIT_TOKEN }}
+         branch: main
