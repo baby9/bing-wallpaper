@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_1920x1080.jpg&w=1000)Today: [Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_1920x1080.jpg&w=1000)Today: [Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)](https://www.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_1920x1080.jpg&w=1000)Feb-25: [Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RichmondParkDuck_EN-US9381974155_1920x1080.jpg&w=1000)Feb-24: [Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)](https://www.bing.com/th?id=OHR.RichmondParkDuck_EN-US9381974155_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_1920x1080.jpg&w=1000)Feb-23: [Paris, France (© somchaij/Shutterstock)](https://www.bing.com/th?id=OHR.BlueWinterParis_EN-US2358774284_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_1920x1080.jpg&w=1000)Feb-22: [Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)](https://www.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg)<br><br>
