@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_1920x1080.jpg&w=1000)Today: [Polar bears asleep in Canada (© David Pike/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.AtraniAmalfi_EN-US0095082556_1920x1080.jpg&w=1000)Today: [Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)](https://www.bing.com/th?id=OHR.AtraniAmalfi_EN-US0095082556_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_1920x1080.jpg&w=1000)Feb-27: [Polar bears asleep in Canada (© David Pike/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_1920x1080.jpg&w=1000)Feb-26: [Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)](https://www.bing.com/th?id=OHR.CanopyPeru_EN-US9715922202_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_1920x1080.jpg&w=1000)Feb-25: [Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.BryceAnniv_EN-US9498074213_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RichmondParkDuck_EN-US9381974155_1920x1080.jpg&w=1000)Feb-24: [Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)](https://www.bing.com/th?id=OHR.RichmondParkDuck_EN-US9381974155_UHD.jpg)<br><br>
