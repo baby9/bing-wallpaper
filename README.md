@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_1920x1080.jpg&w=1000)Today: [Negratín Reservoir, Granada, Spain (© Andres Martinez Olmedo/Getty Images)](https://www.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.OrcaNorway_EN-US0377841310_1920x1080.jpg&w=1000)Today: [Killer whales in the waters off Spildra, Norway (© Alex Mustard/Minden Pictures)](https://www.bing.com/th?id=OHR.OrcaNorway_EN-US0377841310_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_1920x1080.jpg&w=1000)Mar-02: [Negratín Reservoir, Granada, Spain (© Andres Martinez Olmedo/Getty Images)](https://www.bing.com/th?id=OHR.NegratinSpain_EN-US0285047102_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_1920x1080.jpg&w=1000)Mar-01: [Portrait Monument of women's suffrage pioneers, Capitol Rotunda, Washington, DC (© Andrew Harrer/Bloomberg/Getty Images)](https://www.bing.com/th?id=OHR.SuffrageMonumentDC_EN-US0188045009_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AtraniAmalfi_EN-US0095082556_1920x1080.jpg&w=1000)Feb-28: [Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)](https://www.bing.com/th?id=OHR.AtraniAmalfi_EN-US0095082556_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_1920x1080.jpg&w=1000)Feb-27: [Polar bears asleep in Canada (© David Pike/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarBearFrost_EN-US9888741440_UHD.jpg)<br><br>
