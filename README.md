@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_1920x1080.jpg&w=1000)Today: [Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)](https://www.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_1920x1080.jpg&w=1000)Today: [Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)](https://www.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_1920x1080.jpg&w=1000)Mar-06: [Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)](https://www.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_1920x1080.jpg&w=1000)Mar-05: [Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)](https://www.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PicoVolcano_EN-US0491099827_1920x1080.jpg&w=1000)Mar-04: [Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.PicoVolcano_EN-US0491099827_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OrcaNorway_EN-US0377841310_1920x1080.jpg&w=1000)Mar-03: [Killer whales in the waters off Spildra, Norway (© Alex Mustard/Minden Pictures)](https://www.bing.com/th?id=OHR.OrcaNorway_EN-US0377841310_UHD.jpg)<br><br>
