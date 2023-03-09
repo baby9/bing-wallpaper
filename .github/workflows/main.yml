@@ -21,8 +21,7 @@ jobs:
       run: |
          git config --global user.email ${{ secrets.MY_EMAIL }}
          git config --global user.name ${{ secrets.MY_ID }}
-         git pull
-         git add .
+         git add README.md
          git commit -m "update files"
     - name: Push changes
       uses:  ad-m/github-push-action@master
