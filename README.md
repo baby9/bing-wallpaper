@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_1920x1080.jpg&w=1000)Today: [Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)](https://www.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CyprusMaze_EN-US7012705307_1920x1080.jpg&w=1000)Today: [Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)](https://www.bing.com/th?id=OHR.CyprusMaze_EN-US7012705307_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_1920x1080.jpg&w=1000)Mar-13: [Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)](https://www.bing.com/th?id=OHR.LionessesNap_EN-US6947230556_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TheaterRomania_EN-US6839059395_1920x1080.jpg&w=1000)Mar-12: [Lucian Blaga National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)](https://www.bing.com/th?id=OHR.TheaterRomania_EN-US6839059395_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LongWharf_EN-US6625072596_1920x1080.jpg&w=1000)Mar-11: [Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)](https://www.bing.com/th?id=OHR.LongWharf_EN-US6625072596_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EdaleValley_EN-US6544571023_1920x1080.jpg&w=1000)Mar-10: [Vale of Edale, Peak District, England (© John Finney/Getty Images)](https://www.bing.com/th?id=OHR.EdaleValley_EN-US6544571023_UHD.jpg)<br><br>
