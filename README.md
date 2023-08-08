@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1920x1080.jpg&w=1000)Today: [Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1920x1080.jpg&w=1000)Today: [Highways in Taipei, Taiwan (© Tavarius/Shutterstock)](https://www.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1920x1080.jpg&w=1000)Aug-07: [Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1920x1080.jpg&w=1000)Aug-06: [Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_1920x1080.jpg&w=1000)Aug-05: [Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)](https://www.bing.com/th?id=OHR.AtlanticPuffin_EN-US6337041297_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_1920x1080.jpg&w=1000)Aug-04: [Tintern Abbey, Wales (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_EN-US2341737381_UHD.jpg)<br><br>
