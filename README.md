@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1920x1080.jpg&w=1000)Today: [Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)](https://www.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_1920x1080.jpg&w=1000)Today: [A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WorldLionDay_EN-US3311213683_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_1920x1080.jpg&w=1000)Aug-09: [Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)](https://www.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_1920x1080.jpg&w=1000)Aug-08: [Highways in Taipei, Taiwan (© Tavarius/Shutterstock)](https://www.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BodieNC_EN-US2693689463_1920x1080.jpg&w=1000)Aug-07: [Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_1920x1080.jpg&w=1000)Aug-06: [Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_EN-US2600828175_UHD.jpg)<br><br>
