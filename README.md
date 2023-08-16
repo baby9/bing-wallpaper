@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_1920x1080.jpg&w=1000)Today: [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_1920x1080.jpg&w=1000)Today: [Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_1920x1080.jpg&w=1000)Aug-15: [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://www.bing.com/th?id=OHR.TaorminaSquare_EN-US9553838481_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_1920x1080.jpg&w=1000)Aug-14: [Tiny gecko on a leaf (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_1920x1080.jpg&w=1000)Aug-13: [Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_1920x1080.jpg&w=1000)Aug-12: [Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg)<br><br>
