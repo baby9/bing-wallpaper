@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1920x1080.jpg&w=1000)Today: [Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_1920x1080.jpg&w=1000)Today: [Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1920x1080.jpg&w=1000)Aug-26: [Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneFalls_EN-US1964232839_1920x1080.jpg&w=1000)Aug-25: [Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.YellowstoneFalls_EN-US1964232839_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SharkFinCove_EN-US1070740515_1920x1080.jpg&w=1000)Aug-24: [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SharkFinCove_EN-US1070740515_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_EN-US0919190171_1920x1080.jpg&w=1000)Aug-23: [Skógafoss waterfall, Iceland (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_EN-US0919190171_UHD.jpg)<br><br>
