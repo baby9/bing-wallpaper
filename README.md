@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1920x1080.jpg&w=1000)Today: [American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1920x1080.jpg&w=1000)Today: [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_1920x1080.jpg&w=1000)Aug-29: [American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_1920x1080.jpg&w=1000)Aug-28: [Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)](https://www.bing.com/th?id=OHR.DubrovnikHarbor_EN-US2498064362_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_1920x1080.jpg&w=1000)Aug-27: [Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.JejuIsland_EN-US2402698261_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_1920x1080.jpg&w=1000)Aug-26: [Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_EN-US2197808554_UHD.jpg)<br><br>
