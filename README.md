@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_1920x1080.jpg&w=1000)Today: [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_1920x1080.jpg&w=1000)Today: [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://www.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_1920x1080.jpg&w=1000)Sep-02: [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_1920x1080.jpg&w=1000)Sep-01: [Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)](https://www.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_1920x1080.jpg&w=1000)Aug-31: [Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_EN-US2823371711_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_1920x1080.jpg&w=1000)Aug-30: [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg)<br><br>
