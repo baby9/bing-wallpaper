@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1920x1080.jpg&w=1000)Today: [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_1920x1080.jpg&w=1000)Today: [Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)](https://www.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MountSegla_EN-US3570750349_1920x1080.jpg&w=1000)Sep-05: [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_EN-US3570750349_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_1920x1080.jpg&w=1000)Sep-04: [Construction workers on scaffolding (© Bits and Splits/Shutterstock)](https://www.bing.com/th?id=OHR.LaborDayWorkers_EN-US3448430770_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_1920x1080.jpg&w=1000)Sep-03: [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://www.bing.com/th?id=OHR.ManhattanAerial_EN-US3290111355_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_1920x1080.jpg&w=1000)Sep-02: [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_EN-US3171586787_UHD.jpg)<br><br>
