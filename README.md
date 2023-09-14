@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1920x1080.jpg&w=1000)Today: [Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_1920x1080.jpg&w=1000)Today: [Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaHorses_EN-US2400199558_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_1920x1080.jpg&w=1000)Sep-13: [Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_EN-US2233323383_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_1920x1080.jpg&w=1000)Sep-12: [North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_EN-US2097672090_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_1920x1080.jpg&w=1000)Sep-11: [Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)](https://www.bing.com/th?id=OHR.BridgeMemorial_EN-US1953692613_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_1920x1080.jpg&w=1000)Sep-10: [Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)](https://www.bing.com/th?id=OHR.WalrusSvalbard_EN-US1836032120_UHD.jpg)<br><br>
