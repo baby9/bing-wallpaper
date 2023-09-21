@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1920x1080.jpg&w=1000)Today: [Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_1920x1080.jpg&w=1000)Today: [Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_1920x1080.jpg&w=1000)Sep-20: [Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_1920x1080.jpg&w=1000)Sep-19: [Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_EN-US5807017383_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_1920x1080.jpg&w=1000)Sep-18: [Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CubanTody_EN-US3083797062_1920x1080.jpg&w=1000)Sep-17: [Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)](https://www.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg)<br><br>
