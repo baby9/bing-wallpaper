@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1920x1080.jpg&w=1000)Today: [Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_1920x1080.jpg&w=1000)Today: ['Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_1920x1080.jpg&w=1000)Oct-13: [Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ViesteItaly_EN-US0948108910_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_1920x1080.jpg&w=1000)Oct-12: [Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)](https://www.bing.com/th?id=OHR.IdahoBarn_EN-US0098074838_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_1920x1080.jpg&w=1000)Oct-11: [The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_1920x1080.jpg&w=1000)Oct-10: [Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg)<br><br>
