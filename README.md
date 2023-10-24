@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_1920x1080.jpg&w=1000)Today: [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://www.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1920x1080.jpg&w=1000)Today: [Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_1920x1080.jpg&w=1000)Oct-23: [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://www.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1920x1080.jpg&w=1000)Oct-22: [Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1920x1080.jpg&w=1000)Oct-21: [Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_1920x1080.jpg&w=1000)Oct-20: [Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.PygmySloth_EN-US9345280015_UHD.jpg)<br><br>
