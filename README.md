@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1920x1080.jpg&w=1000)Today: [Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1920x1080.jpg&w=1000)Today: [Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1920x1080.jpg&w=1000)Oct-24: [Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_1920x1080.jpg&w=1000)Oct-23: [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://www.bing.com/th?id=OHR.PoconosMaze_EN-US4210947594_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_1920x1080.jpg&w=1000)Oct-22: [Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_EN-US9518437970_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_1920x1080.jpg&w=1000)Oct-21: [Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.PersepolisRelief_EN-US9435779068_UHD.jpg)<br><br>
