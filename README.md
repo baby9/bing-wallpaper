@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1920x1080.jpg&w=1000)Today: [Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1920x1080.jpg&w=1000)Today: [Windmills in Castilla-La Mancha, Spain (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_1920x1080.jpg&w=1000)Oct-27: [Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_EN-US0196189617_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_1920x1080.jpg&w=1000)Oct-26: [Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_EN-US0101367282_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_1920x1080.jpg&w=1000)Oct-25: [Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_EN-US9984560349_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_1920x1080.jpg&w=1000)Oct-24: [Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_EN-US9918819618_UHD.jpg)<br><br>
