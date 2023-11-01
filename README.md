@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1920x1080.jpg&w=1000)Today: [Halloween jack-o'-lanterns on a porch (© Bing Image Creator)](https://www.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_1920x1080.jpg&w=1000)Today: [Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)](https://www.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_1920x1080.jpg&w=1000)Oct-31: [Halloween jack-o'-lanterns on a porch (© Bing Image Creator)](https://www.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_1920x1080.jpg&w=1000)Oct-30: [Common raven sitting on a branch (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_1920x1080.jpg&w=1000)Oct-29: [Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)](https://www.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_1920x1080.jpg&w=1000)Oct-28: [Windmills in Castilla-La Mancha, Spain (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg)<br><br>
