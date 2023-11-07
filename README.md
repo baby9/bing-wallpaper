@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_1920x1080.jpg&w=1000)Today: [Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1920x1080.jpg&w=1000)Today: [Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)](https://www.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_1920x1080.jpg&w=1000)Nov-06: [Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1920x1080.jpg&w=1000)Nov-05: [American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_1920x1080.jpg&w=1000)Nov-04: [American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_EN-US6764351912_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_1920x1080.jpg&w=1000)Nov-03: [Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg)<br><br>
