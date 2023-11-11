@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1920x1080.jpg&w=1000)Today: [Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_1920x1080.jpg&w=1000)Today: [Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BadlandsSunrise_EN-US7576048436_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_1920x1080.jpg&w=1000)Nov-10: [Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBirch_EN-US7497125692_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_1920x1080.jpg&w=1000)Nov-09: [West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_1920x1080.jpg&w=1000)Nov-08: [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_1920x1080.jpg&w=1000)Nov-07: [Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)](https://www.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg)<br><br>
