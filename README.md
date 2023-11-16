@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1920x1080.jpg&w=1000)Today: [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1920x1080.jpg&w=1000)Today: [View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1920x1080.jpg&w=1000)Nov-15: [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_1920x1080.jpg&w=1000)Nov-14: [Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_1920x1080.jpg&w=1000)Nov-13: [Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_1920x1080.jpg&w=1000)Nov-12: [Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg)<br><br>
