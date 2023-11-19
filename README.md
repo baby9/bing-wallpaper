@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1920x1080.jpg&w=1000)Today: [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1920x1080.jpg&w=1000)Today: [Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1920x1080.jpg&w=1000)Nov-18: [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BadRiver_EN-US1270508214_1920x1080.jpg&w=1000)Nov-17: [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_1920x1080.jpg&w=1000)Nov-16: [View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_1920x1080.jpg&w=1000)Nov-15: [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg)<br><br>
