@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1920x1080.jpg&w=1000)Today: [Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_1920x1080.jpg&w=1000)Today: [Grand Teton National Park, Wyoming (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.SnakeRiverTeton_EN-US2749569171_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_1920x1080.jpg&w=1000)Nov-21: [Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)](https://www.bing.com/th?id=OHR.HelloSeal_EN-US2666982656_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChapmanAdventure_EN-US2522291999_1920x1080.jpg&w=1000)Nov-20: [Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)](https://www.bing.com/th?id=OHR.ChapmanAdventure_EN-US2522291999_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_1920x1080.jpg&w=1000)Nov-19: [Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_1920x1080.jpg&w=1000)Nov-18: [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg)<br><br>
