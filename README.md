@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_1920x1080.jpg&w=1000)Today: [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_1920x1080.jpg&w=1000)Today: [Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_1920x1080.jpg&w=1000)Nov-28: [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RioNegro_EN-US4106999854_1920x1080.jpg&w=1000)Nov-27: [Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_EN-US4106999854_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_1920x1080.jpg&w=1000)Nov-26: [Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_EN-US3932725763_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_1920x1080.jpg&w=1000)Nov-25: [Toledo, Spain (© Carlos Fernandez/Getty Images)](https://www.bing.com/th?id=OHR.TajoRiver_EN-US3801665254_UHD.jpg)<br><br>
