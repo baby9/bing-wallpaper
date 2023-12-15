@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1920x1080.jpg&w=1000)Today: [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SantaPark_EN-US8274997583_1920x1080.jpg&w=1000)Today: [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://www.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1920x1080.jpg&w=1000)Dec-14: [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1920x1080.jpg&w=1000)Dec-13: [Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_1920x1080.jpg&w=1000)Dec-12: [Poinsettias (© Yarygin/Getty Images)](https://www.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MountainDayChina_EN-US0394775210_1920x1080.jpg&w=1000)Dec-11: [Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_EN-US0394775210_UHD.jpg)<br><br>
