@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_1920x1080.jpg&w=1000)Today: [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_1920x1080.jpg&w=1000)Today: [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_1920x1080.jpg&w=1000)Dec-16: [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaPark_EN-US8274997583_1920x1080.jpg&w=1000)Dec-15: [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://www.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1920x1080.jpg&w=1000)Dec-14: [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_1920x1080.jpg&w=1000)Dec-13: [Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg)<br><br>
