@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_1920x1080.jpg&w=1000)Today: [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_1920x1080.jpg&w=1000)Today: [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_1920x1080.jpg&w=1000)Dec-17: [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_1920x1080.jpg&w=1000)Dec-16: [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaPark_EN-US8274997583_1920x1080.jpg&w=1000)Dec-15: [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://www.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_1920x1080.jpg&w=1000)Dec-14: [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)<br><br>
