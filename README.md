@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_1920x1080.jpg&w=1000)Today: [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://www.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_1920x1080.jpg&w=1000)Today: [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://www.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_1920x1080.jpg&w=1000)Dec-19: [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://www.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_1920x1080.jpg&w=1000)Dec-18: [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_1920x1080.jpg&w=1000)Dec-17: [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_1920x1080.jpg&w=1000)Dec-16: [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_EN-US8451269457_UHD.jpg)<br><br>
