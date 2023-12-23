@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_1920x1080.jpg&w=1000)Today: [Ljubljana, Slovenia (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1920x1080.jpg&w=1000)Today: [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://www.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_1920x1080.jpg&w=1000)Dec-22: [Ljubljana, Slovenia (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_1920x1080.jpg&w=1000)Dec-21: [Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_1920x1080.jpg&w=1000)Dec-20: [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://www.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_1920x1080.jpg&w=1000)Dec-19: [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://www.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg)<br><br>
