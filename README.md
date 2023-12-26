@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1920x1080.jpg&w=1000)Today: [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1920x1080.jpg&w=1000)Today: [Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1920x1080.jpg&w=1000)Dec-25: [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_1920x1080.jpg&w=1000)Dec-24: [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_1920x1080.jpg&w=1000)Dec-23: [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://www.bing.com/th?id=OHR.FestivusPenguins_EN-US9322662873_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_1920x1080.jpg&w=1000)Dec-22: [Ljubljana, Slovenia (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg)<br><br>
