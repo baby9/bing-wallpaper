@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_1920x1080.jpg&w=1000)Today: [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1920x1080.jpg&w=1000)Today: [Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_1920x1080.jpg&w=1000)Dec-28: [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_1920x1080.jpg&w=1000)Dec-27: [Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_1920x1080.jpg&w=1000)Dec-26: [Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_1920x1080.jpg&w=1000)Dec-25: [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)<br><br>
