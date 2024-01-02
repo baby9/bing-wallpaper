@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1920x1080.jpg&w=1000)Today: [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1920x1080.jpg&w=1000)Today: [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1920x1080.jpg&w=1000)Jan-01: [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_1920x1080.jpg&w=1000)Dec-31: [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://www.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_1920x1080.jpg&w=1000)Dec-30: [Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_1920x1080.jpg&w=1000)Dec-29: [Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg)<br><br>
