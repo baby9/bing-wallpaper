@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_1920x1080.jpg&w=1000)Today: [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_1920x1080.jpg&w=1000)Today: [Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_1920x1080.jpg&w=1000)Jan-03: [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_1920x1080.jpg&w=1000)Jan-02: [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_1920x1080.jpg&w=1000)Jan-01: [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_1920x1080.jpg&w=1000)Dec-31: [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://www.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_UHD.jpg)<br><br>
