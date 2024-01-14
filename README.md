@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_1920x1080.jpg&w=1000)Today: [Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1920x1080.jpg&w=1000)Today: [Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_1920x1080.jpg&w=1000)Jan-13: [Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-US0422922586_1920x1080.jpg&w=1000)Jan-12: [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-US0422922586_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LynxSnow_EN-US9261675170_1920x1080.jpg&w=1000)Jan-11: [Eurasian lynx in the snow (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.LynxSnow_EN-US9261675170_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MilopotamosStairs_EN-US9131506093_1920x1080.jpg&w=1000)Jan-10: [Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_EN-US9131506093_UHD.jpg)<br><br>
