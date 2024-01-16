@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1920x1080.jpg&w=1000)Today: [Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)](https://www.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_1920x1080.jpg&w=1000)Today: [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_1920x1080.jpg&w=1000)Jan-15: [Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)](https://www.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_1920x1080.jpg&w=1000)Jan-14: [Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_1920x1080.jpg&w=1000)Jan-13: [Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-US0422922586_1920x1080.jpg&w=1000)Jan-12: [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-US0422922586_UHD.jpg)<br><br>
