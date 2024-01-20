@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1920x1080.jpg&w=1000)Today: [Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_1920x1080.jpg&w=1000)Today: [Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_1920x1080.jpg&w=1000)Jan-19: [Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_1920x1080.jpg&w=1000)Jan-18: [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_1920x1080.jpg&w=1000)Jan-17: [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_1920x1080.jpg&w=1000)Jan-16: [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg)<br><br>
