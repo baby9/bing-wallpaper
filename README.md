@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_1920x1080.jpg&w=1000)Today: [Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_1920x1080.jpg&w=1000)Today: [Northern hawk-owl (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_1920x1080.jpg&w=1000)Jan-25: [Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcelandBeach_EN-US2647667820_1920x1080.jpg&w=1000)Jan-24: [Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_EN-US2647667820_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaldivesAtolls_EN-US2498947967_1920x1080.jpg&w=1000)Jan-23: [Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_EN-US2498947967_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_1920x1080.jpg&w=1000)Jan-22: [Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_UHD.jpg)<br><br>
