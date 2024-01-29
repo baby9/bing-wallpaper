@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_1920x1080.jpg&w=1000)Today: [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://www.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GollingerFalls_EN-US7184224692_1920x1080.jpg&w=1000)Today: [Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://www.bing.com/th?id=OHR.GollingerFalls_EN-US7184224692_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_1920x1080.jpg&w=1000)Jan-28: [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://www.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_1920x1080.jpg&w=1000)Jan-27: [Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)](https://www.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_1920x1080.jpg&w=1000)Jan-26: [Northern hawk-owl (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_1920x1080.jpg&w=1000)Jan-25: [Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg)<br><br>
