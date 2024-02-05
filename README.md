@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_1920x1080.jpg&w=1000)Today: [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_1920x1080.jpg&w=1000)Today: [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_1920x1080.jpg&w=1000)Feb-04: [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1920x1080.jpg&w=1000)Feb-03: [Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_1920x1080.jpg&w=1000)Feb-02: [Marmot peeking out of its burrow (© Scacciamosche/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_1920x1080.jpg&w=1000)Feb-01: [Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)](https://www.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg)<br><br>
