@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1920x1080.jpg&w=1000)Today: [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1920x1080.jpg&w=1000)Today: [St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1920x1080.jpg&w=1000)Feb-06: [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_1920x1080.jpg&w=1000)Feb-05: [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_1920x1080.jpg&w=1000)Feb-04: [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_1920x1080.jpg&w=1000)Feb-03: [Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg)<br><br>
