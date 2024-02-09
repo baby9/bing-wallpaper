@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1920x1080.jpg&w=1000)Today: [Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1920x1080.jpg&w=1000)Today: [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1920x1080.jpg&w=1000)Feb-08: [Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_1920x1080.jpg&w=1000)Feb-07: [St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_1920x1080.jpg&w=1000)Feb-06: [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_1920x1080.jpg&w=1000)Feb-05: [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg)<br><br>
