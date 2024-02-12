@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1920x1080.jpg&w=1000)Today: [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_1920x1080.jpg&w=1000)Today: [Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_1920x1080.jpg&w=1000)Feb-11: [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_1920x1080.jpg&w=1000)Feb-10: [Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_1920x1080.jpg&w=1000)Feb-09: [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_1920x1080.jpg&w=1000)Feb-08: [Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg)<br><br>
