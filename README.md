@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1920x1080.jpg&w=1000)Today: [Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_1920x1080.jpg&w=1000)Today: [Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)](https://www.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_1920x1080.jpg&w=1000)Feb-18: [Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_EN-US7918259144_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_1920x1080.jpg&w=1000)Feb-17: [The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_1920x1080.jpg&w=1000)Feb-16: [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://www.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_1920x1080.jpg&w=1000)Feb-15: [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg)<br><br>
