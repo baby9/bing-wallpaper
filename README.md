@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1920x1080.jpg&w=1000)Today: [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_1920x1080.jpg&w=1000)Today: [Eurasian red squirrel (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1920x1080.jpg&w=1000)Feb-28: [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_1920x1080.jpg&w=1000)Feb-27: [Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_1920x1080.jpg&w=1000)Feb-26: [Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)](https://www.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_1920x1080.jpg&w=1000)Feb-25: ['United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)](https://www.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg)<br><br>
