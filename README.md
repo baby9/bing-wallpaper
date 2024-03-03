@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1920x1080.jpg&w=1000)Today: [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1920x1080.jpg&w=1000)Today: [Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)](https://www.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1920x1080.jpg&w=1000)Mar-02: [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_1920x1080.jpg&w=1000)Mar-01: [Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)](https://www.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_1920x1080.jpg&w=1000)Feb-29: [Eurasian red squirrel (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_1920x1080.jpg&w=1000)Feb-28: [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg)<br><br>
