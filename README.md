@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_1920x1080.jpg&w=1000)Today: [Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_1920x1080.jpg&w=1000)Today: [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_1920x1080.jpg&w=1000)Mar-04: [Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1920x1080.jpg&w=1000)Mar-03: [Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)](https://www.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1920x1080.jpg&w=1000)Mar-02: [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_1920x1080.jpg&w=1000)Mar-01: [Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)](https://www.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_UHD.jpg)<br><br>
