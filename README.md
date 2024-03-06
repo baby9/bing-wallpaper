@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_1920x1080.jpg&w=1000)Today: [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WahclellaFalls_EN-US4371863309_1920x1080.jpg&w=1000)Today: [Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WahclellaFalls_EN-US4371863309_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_1920x1080.jpg&w=1000)Mar-05: [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://www.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_1920x1080.jpg&w=1000)Mar-04: [Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_1920x1080.jpg&w=1000)Mar-03: [Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)](https://www.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_1920x1080.jpg&w=1000)Mar-02: [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg)<br><br>
