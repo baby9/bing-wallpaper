@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_1920x1080.jpg&w=1000)Today: [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_1920x1080.jpg&w=1000)Today: [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_1920x1080.jpg&w=1000)Mar-15: [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1920x1080.jpg&w=1000)Mar-14: [Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)](https://www.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_1920x1080.jpg&w=1000)Mar-13: [Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_1920x1080.jpg&w=1000)Mar-12: [Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_UHD.jpg)<br><br>
