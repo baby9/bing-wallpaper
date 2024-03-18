@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_1920x1080.jpg&w=1000)Today: [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_1920x1080.jpg&w=1000)Today: [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_1920x1080.jpg&w=1000)Mar-17: [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_1920x1080.jpg&w=1000)Mar-16: [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_1920x1080.jpg&w=1000)Mar-15: [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_1920x1080.jpg&w=1000)Mar-14: [Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)](https://www.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg)<br><br>
