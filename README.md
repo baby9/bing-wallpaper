@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_1920x1080.jpg&w=1000)Today: [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_1920x1080.jpg&w=1000)Today: [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_1920x1080.jpg&w=1000)Mar-18: [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://www.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_1920x1080.jpg&w=1000)Mar-17: [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_1920x1080.jpg&w=1000)Mar-16: [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_1920x1080.jpg&w=1000)Mar-15: [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)<br><br>
