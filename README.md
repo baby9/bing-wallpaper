@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1920x1080.jpg&w=1000)Today: [Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1920x1080.jpg&w=1000)Today: [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_1920x1080.jpg&w=1000)Mar-25: [Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_1920x1080.jpg&w=1000)Mar-24: [Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)](https://www.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmazonClouds_EN-US2049846873_1920x1080.jpg&w=1000)Mar-23: [Large anvil clouds above the Amazon in Brazil (© NASA)](https://www.bing.com/th?id=OHR.AmazonClouds_EN-US2049846873_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WaikatoWater_EN-US1360247236_1920x1080.jpg&w=1000)Mar-22: [Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)](https://www.bing.com/th?id=OHR.WaikatoWater_EN-US1360247236_UHD.jpg)<br><br>
