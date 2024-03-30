@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_1920x1080.jpg&w=1000)Today: [South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)](https://www.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_1920x1080.jpg&w=1000)Today: [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_1920x1080.jpg&w=1000)Mar-29: [South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)](https://www.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1920x1080.jpg&w=1000)Mar-28: [Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_1920x1080.jpg&w=1000)Mar-27: [Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_1920x1080.jpg&w=1000)Mar-26: [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg)<br><br>
