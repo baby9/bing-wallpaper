@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_1920x1080.jpg&w=1000)Today: [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_1920x1080.jpg&w=1000)Today: [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_1920x1080.jpg&w=1000)Mar-30: [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_1920x1080.jpg&w=1000)Mar-29: [South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)](https://www.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_1920x1080.jpg&w=1000)Mar-28: [Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_1920x1080.jpg&w=1000)Mar-27: [Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg)<br><br>
