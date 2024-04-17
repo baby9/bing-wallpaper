@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_1920x1080.jpg&w=1000)Today: [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SpringCub_EN-US3818124104_1920x1080.jpg&w=1000)Today: [American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_EN-US3818124104_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_1920x1080.jpg&w=1000)Apr-16: [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_1920x1080.jpg&w=1000)Apr-15: [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_1920x1080.jpg&w=1000)Apr-14: [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpringApple_EN-US3148648329_1920x1080.jpg&w=1000)Apr-13: [Apple trees in spring, Germany (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg)<br><br>
