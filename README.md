@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1920x1080.jpg&w=1000)Today: [Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1920x1080.jpg&w=1000)Today: [Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CadesCove_EN-US4359486356_1920x1080.jpg&w=1000)Apr-21: [Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_1920x1080.jpg&w=1000)Apr-20: [Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_1920x1080.jpg&w=1000)Apr-19: [The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_1920x1080.jpg&w=1000)Apr-18: [Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg)<br><br>
