@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_1920x1080.jpg&w=1000)Today: [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_1920x1080.jpg&w=1000)Today: [Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_EN-US5565386489_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_1920x1080.jpg&w=1000)Apr-25: [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_1920x1080.jpg&w=1000)Apr-24: [White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://www.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrinityDublin_EN-US5011442234_1920x1080.jpg&w=1000)Apr-23: [Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_EN-US5011442234_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_1920x1080.jpg&w=1000)Apr-22: [Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg)<br><br>
