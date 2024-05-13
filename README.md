@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_1920x1080.jpg&w=1000)Today: [Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_1920x1080.jpg&w=1000)Today: [Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_1920x1080.jpg&w=1000)May-12: [Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_EN-US0916417036_1920x1080.jpg&w=1000)May-11: [An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_EN-US0916417036_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_EN-US0805176947_1920x1080.jpg&w=1000)May-10: [Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_EN-US0805176947_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_1920x1080.jpg&w=1000)May-09: [Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_UHD.jpg)<br><br>
