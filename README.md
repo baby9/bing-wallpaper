@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1920x1080.jpg&w=1000)Today: [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_1920x1080.jpg&w=1000)Today: ['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_1920x1080.jpg&w=1000)May-15: [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_1920x1080.jpg&w=1000)May-14: [Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_1920x1080.jpg&w=1000)May-13: [Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_1920x1080.jpg&w=1000)May-12: [Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_UHD.jpg)<br><br>
