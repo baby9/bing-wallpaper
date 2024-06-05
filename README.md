@@ -1,5 +1,6 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1920x1080.jpg&w=1000)Today: [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1920x1080.jpg&w=1000)Today: [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1920x1080.jpg&w=1000)Jun-04: [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1920x1080.jpg&w=1000)Jun-03: [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_1920x1080.jpg&w=1000)Jun-02: [Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)](https://www.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_1920x1080.jpg&w=1000)Jun-01: [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg)<br><br>
