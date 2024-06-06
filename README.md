@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1920x1080.jpg&w=1000)Jun-06: [Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)](https://www.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1920x1080.jpg&w=1000)Jun-05: [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_1920x1080.jpg&w=1000)Jun-04: [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-US6538566329_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_1920x1080.jpg&w=1000)Jun-03: [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg)<br><br>
