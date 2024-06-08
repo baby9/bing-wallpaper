@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_1920x1080.jpg&w=1000)Jun-08: [Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_1920x1080.jpg&w=1000)Jun-07: [Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_1920x1080.jpg&w=1000)Jun-06: [Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)](https://www.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_1920x1080.jpg&w=1000)Jun-05: [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg)<br><br>
