@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HummingThistle_EN-US9897642087_1920x1080.jpg&w=1000)Jun-17: [Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)](https://www.bing.com/th?id=OHR.HummingThistle_EN-US9897642087_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_1920x1080.jpg&w=1000)Jun-16: [Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NazareWave_EN-US9510827848_1920x1080.jpg&w=1000)Jun-15: [Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_1920x1080.jpg&w=1000)Jun-14: [Flag display at the Washington Monument, Washington, DC (© tristanbnz/Adobe Stock)](https://www.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg)<br><br>
