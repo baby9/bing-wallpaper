@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_1920x1080.jpg&w=1000)Jun-24: [Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_1920x1080.jpg&w=1000)Jun-23: [Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-US0835586345_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_1920x1080.jpg&w=1000)Jun-22: [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_1920x1080.jpg&w=1000)Jun-21: [Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://www.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg)<br><br>
