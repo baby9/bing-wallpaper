@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_1920x1080.jpg&w=1000)Jun-28: [Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_1920x1080.jpg&w=1000)Jun-27: [Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_1920x1080.jpg&w=1000)Jun-26: [Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_EN-US1278259894_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FireWave_EN-US1154414797_1920x1080.jpg&w=1000)Jun-25: [Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FireWave_EN-US1154414797_UHD.jpg)<br><br>
