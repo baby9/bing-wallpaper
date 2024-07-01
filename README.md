@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1920x1080.jpg&w=1000)Jul-01: [Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.UbudBali_EN-US3541248173_1920x1080.jpg&w=1000)Jun-30: [Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_1920x1080.jpg&w=1000)Jun-29: [Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_1920x1080.jpg&w=1000)Jun-28: [Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_UHD.jpg)<br><br>
