@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_1920x1080.jpg&w=1000)Jul-04: [Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)](https://www.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_1920x1080.jpg&w=1000)Jul-03: [Meerkat family (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_1920x1080.jpg&w=1000)Jul-02: [The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_1920x1080.jpg&w=1000)Jul-01: [Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg)<br><br>
