@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1920x1080.jpg&w=1000)Jul-08: [Blueberries growing in the wild (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_1920x1080.jpg&w=1000)Jul-07: [Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://www.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_1920x1080.jpg&w=1000)Jul-06: [Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)](https://www.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NoahBeach_EN-US4383778312_1920x1080.jpg&w=1000)Jul-05: [Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)](https://www.bing.com/th?id=OHR.NoahBeach_EN-US4383778312_UHD.jpg)<br><br>
