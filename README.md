@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_1920x1080.jpg&w=1000)Jul-11: [Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_1920x1080.jpg&w=1000)Jul-10: [Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_1920x1080.jpg&w=1000)Jul-09: [Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)](https://www.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_1920x1080.jpg&w=1000)Jul-08: [Blueberries growing in the wild (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg)<br><br>
