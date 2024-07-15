@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1920x1080.jpg&w=1000)Jul-15: [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1920x1080.jpg&w=1000)Jul-14: [Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)](https://www.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1920x1080.jpg&w=1000)Jul-13: [Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_1920x1080.jpg&w=1000)Jul-12: [Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg)<br><br>
