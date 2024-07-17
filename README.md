@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1920x1080.jpg&w=1000)Jul-17: [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1920x1080.jpg&w=1000)Jul-16: [The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_1920x1080.jpg&w=1000)Jul-15: [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_EN-US8384642632_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_1920x1080.jpg&w=1000)Jul-14: [Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)](https://www.bing.com/th?id=OHR.LaGeriaLanzarote_EN-US4849523931_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_1920x1080.jpg&w=1000)Jul-13: [Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_EN-US8162611189_UHD.jpg)<br><br>
