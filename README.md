@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_1920x1080.jpg&w=1000)Jul-19: [A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://www.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_1920x1080.jpg&w=1000)Jul-18: [Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MayotteCoral_EN-US8740739098_1920x1080.jpg&w=1000)Jul-18: [Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_EN-US8740739098_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_1920x1080.jpg&w=1000)Jul-17: [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_1920x1080.jpg&w=1000)Jul-16: [The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_EN-US8469766447_UHD.jpg)<br><br>
