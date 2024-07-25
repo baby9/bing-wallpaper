@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1920x1080.jpg&w=1000)Jul-25: [Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_1920x1080.jpg&w=1000)Jul-24: [Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_1920x1080.jpg&w=1000)Jul-23: [Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_1920x1080.jpg&w=1000)Jul-22: [Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg)<br><br>
