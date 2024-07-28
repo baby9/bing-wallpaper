@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1920x1080.jpg&w=1000)Jul-28: [Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_1920x1080.jpg&w=1000)Jul-27: [Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_1920x1080.jpg&w=1000)Jul-26: [Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_1920x1080.jpg&w=1000)Jul-25: [Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg)<br><br>
