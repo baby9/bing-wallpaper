@@ -14,7 +14,7 @@ function updateREADME {
     urlbase=$(echo $response | awk -F '"urlbase"' '{print $2}' | awk -F '"' '{print $2}')
 
     if [ ! -z $urlbase ]; then
-        if ! grep -q $urlbase README.md; then
+        if (! $(head README.md | grep -q "$urlbase")); then
             new_date=$(date -d "$(echo $response | awk -F '"startdate"' '{print $2}' | awk -F '"' '{print $2}')" +%b-%d)
             full_url="${base_url}$(echo $response | awk -F '"url"' '{print $2}' | awk -F '"' '{print $2}')"
             image_url=$(echo $full_url | awk -F '&' '{print $1}')
