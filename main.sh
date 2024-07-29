@@ -2,7 +2,7 @@
 
 function updateREADME {
     base_url="https://www.bing.com"
-    header="Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/100.0.4896.127 Safari/537.36"
+    header="Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/120.0.0.0 Safari/537.36 Edg/120.0.2592.113"
 
     if [ $1 == "yesterday" ]; then
         api="HPImageArchive.aspx?format=js&idx=1&n=1"
