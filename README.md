@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1920x1080.jpg&w=1000)Jul-31: [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_1920x1080.jpg&w=1000)Jul-30: [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_1920x1080.jpg&w=1000)Jul-29: [Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_1920x1080.jpg&w=1000)Jul-28: [Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-US6029381108_UHD.jpg)<br><br>
