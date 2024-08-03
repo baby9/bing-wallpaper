@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1920x1080.jpg&w=1000)Aug-03: [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1920x1080.jpg&w=1000)Aug-02: [Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_1920x1080.jpg&w=1000)Aug-01: [Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.KaptaiLake_EN-US6490685268_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_1920x1080.jpg&w=1000)Jul-31: [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg)<br><br>
