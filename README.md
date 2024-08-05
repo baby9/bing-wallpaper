@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_1920x1080.jpg&w=1000)Aug-05: [Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_1920x1080.jpg&w=1000)Aug-04: [Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_1920x1080.jpg&w=1000)Aug-03: [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_1920x1080.jpg&w=1000)Aug-02: [Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg)<br><br>
