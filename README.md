@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1920x1080.jpg&w=1000)Aug-11: [Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_1920x1080.jpg&w=1000)Aug-10: [Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_1920x1080.jpg&w=1000)Aug-09: [Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_1920x1080.jpg&w=1000)Aug-08: [Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg)<br><br>
