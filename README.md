@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1920x1080.jpg&w=1000)Aug-14: [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1920x1080.jpg&w=1000)Aug-13: [Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1920x1080.jpg&w=1000)Aug-12: [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_1920x1080.jpg&w=1000)Aug-11: [Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg)<br><br>
