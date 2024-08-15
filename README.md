@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HangCave_EN-US9374263509_1920x1080.jpg&w=1000)Aug-15: [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_1920x1080.jpg&w=1000)Aug-14: [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_1920x1080.jpg&w=1000)Aug-13: [Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_EN-US1981524043_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_1920x1080.jpg&w=1000)Aug-12: [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg)<br><br>
