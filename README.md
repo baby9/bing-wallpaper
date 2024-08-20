@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_1920x1080.jpg&w=1000)Aug-20: [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_1920x1080.jpg&w=1000)Aug-19: [Museum of Flight, Seattle, Washington (© George Rose/Getty Images)](https://www.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_1920x1080.jpg&w=1000)Aug-18: [Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_EN-US9892577517_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_1920x1080.jpg&w=1000)Aug-17: [Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg)<br><br>
