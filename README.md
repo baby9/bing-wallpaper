@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_1920x1080.jpg&w=1000)Aug-25: [Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_EN-US8272209593_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_1920x1080.jpg&w=1000)Aug-24: [Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_1920x1080.jpg&w=1000)Aug-23: [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_1920x1080.jpg&w=1000)Aug-22: [Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg)<br><br>
