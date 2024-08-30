@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_1920x1080.jpg&w=1000)Aug-30: [A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_1920x1080.jpg&w=1000)Aug-29: [Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_1920x1080.jpg&w=1000)Aug-28: [Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_1920x1080.jpg&w=1000)Aug-27: [Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)](https://www.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_1920x1080.jpg&w=1000)Aug-26: [Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_EN-US8399787979_UHD.jpg)<br><br>
