@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KansasMural_EN-US9504361321_1920x1080.jpg&w=1000)Sep-02: ['Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)](https://www.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_1920x1080.jpg&w=1000)Sep-01: [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_1920x1080.jpg&w=1000)Aug-31: [Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_1920x1080.jpg&w=1000)Aug-30: [A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_UHD.jpg)<br><br>
