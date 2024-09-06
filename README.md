@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_1920x1080.jpg&w=1000)Sep-06: [Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_1920x1080.jpg&w=1000)Sep-05: [Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_1920x1080.jpg&w=1000)Sep-04: [Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_1920x1080.jpg&w=1000)Sep-03: [Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg)<br><br>
