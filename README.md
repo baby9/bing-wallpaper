@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_1920x1080.jpg&w=1000)Sep-11: [National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_1920x1080.jpg&w=1000)Sep-10: [Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_1920x1080.jpg&w=1000)Sep-09: [Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_1920x1080.jpg&w=1000)Sep-08: [Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-US4140921886_UHD.jpg)<br><br>
