@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1920x1080.jpg&w=1000)Sep-15: [Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1920x1080.jpg&w=1000)Sep-14: [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PointReyes_EN-US4731803211_1920x1080.jpg&w=1000)Sep-13: [Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_1920x1080.jpg&w=1000)Sep-12: [Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg)<br><br>
