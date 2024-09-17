@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_1920x1080.jpg&w=1000)Sep-17: [Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_1920x1080.jpg&w=1000)Sep-16: [Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_1920x1080.jpg&w=1000)Sep-15: [Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_1920x1080.jpg&w=1000)Sep-14: [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg)<br><br>
