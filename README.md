@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1920x1080.jpg&w=1000)Sep-21: [Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_1920x1080.jpg&w=1000)Sep-20: [Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_1920x1080.jpg&w=1000)Sep-19: [Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_1920x1080.jpg&w=1000)Sep-18: [Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg)<br><br>
