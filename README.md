@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1920x1080.jpg&w=1000)Sep-24: [Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_1920x1080.jpg&w=1000)Sep-23: [Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_1920x1080.jpg&w=1000)Sep-22: [Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://www.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_1920x1080.jpg&w=1000)Sep-21: [Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg)<br><br>
