@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_1920x1080.jpg&w=1000)Sep-27: [Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_1920x1080.jpg&w=1000)Sep-26: [Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_1920x1080.jpg&w=1000)Sep-25: [Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_EN-US4034909984_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_1920x1080.jpg&w=1000)Sep-24: [Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg)<br><br>
