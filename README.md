@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1920x1080.jpg&w=1000)Oct-01: [Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_1920x1080.jpg&w=1000)Sep-30: [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_1920x1080.jpg&w=1000)Sep-29: [West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_1920x1080.jpg&w=1000)Sep-28: [Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg)<br><br>
