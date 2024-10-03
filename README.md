@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_1920x1080.jpg&w=1000)Oct-03: [Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_1920x1080.jpg&w=1000)Oct-02: [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_1920x1080.jpg&w=1000)Oct-01: [Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_1920x1080.jpg&w=1000)Sep-30: [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_UHD.jpg)<br><br>
