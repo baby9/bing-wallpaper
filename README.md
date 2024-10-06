@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_1920x1080.jpg&w=1000)Oct-06: [Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_1920x1080.jpg&w=1000)Oct-05: [African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_EN-US8363933732_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_1920x1080.jpg&w=1000)Oct-04: [Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_EN-US8269574935_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_1920x1080.jpg&w=1000)Oct-03: [Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg)<br><br>
