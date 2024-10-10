@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_1920x1080.jpg&w=1000)Oct-10: [Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_EN-US9866955641_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_1920x1080.jpg&w=1000)Oct-09: [Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_EN-US9105602602_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_1920x1080.jpg&w=1000)Oct-08: [Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_1920x1080.jpg&w=1000)Oct-07: [The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg)<br><br>
