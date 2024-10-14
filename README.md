@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1920x1080.jpg&w=1000)Oct-14: [Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_1920x1080.jpg&w=1000)Oct-13: [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_1920x1080.jpg&w=1000)Oct-12: [Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CelticColours_EN-US9284206130_1920x1080.jpg&w=1000)Oct-11: [Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg)<br><br>
