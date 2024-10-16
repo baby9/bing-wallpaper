@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_1920x1080.jpg&w=1000)Oct-16: [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1920x1080.jpg&w=1000)Oct-15: [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1920x1080.jpg&w=1000)Oct-14: [Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_1920x1080.jpg&w=1000)Oct-13: [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg)<br><br>
