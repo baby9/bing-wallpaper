@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1920x1080.jpg&w=1000)Oct-17: [Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)](https://www.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_1920x1080.jpg&w=1000)Oct-16: [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_1920x1080.jpg&w=1000)Oct-15: [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_1920x1080.jpg&w=1000)Oct-14: [Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg)<br><br>
