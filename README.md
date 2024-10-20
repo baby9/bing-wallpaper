@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_1920x1080.jpg&w=1000)Oct-20: [Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_1920x1080.jpg&w=1000)Oct-19: [Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_1920x1080.jpg&w=1000)Oct-18: [Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_1920x1080.jpg&w=1000)Oct-17: [Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)](https://www.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg)<br><br>
