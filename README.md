@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1920x1080.jpg&w=1000)Oct-25: [The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1920x1080.jpg&w=1000)Oct-24: [Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_1920x1080.jpg&w=1000)Oct-23: [Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MonsterDoor_EN-US2973387472_1920x1080.jpg&w=1000)Oct-22: [Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_EN-US2973387472_UHD.jpg)<br><br>
