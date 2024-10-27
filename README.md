@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_1920x1080.jpg&w=1000)Oct-27: [Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GhostForest_EN-US3389955484_1920x1080.jpg&w=1000)Oct-26: [Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_1920x1080.jpg&w=1000)Oct-25: [The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_1920x1080.jpg&w=1000)Oct-24: [Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-US3185568116_UHD.jpg)<br><br>
