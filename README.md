@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_1920x1080.jpg&w=1000)Nov-01: [Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.HovenweepRuins_EN-US3883549583_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_1920x1080.jpg&w=1000)Oct-31: [Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.GargoyleParis_EN-US4049828558_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_1920x1080.jpg&w=1000)Oct-30: [View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_1920x1080.jpg&w=1000)Oct-29: [Great horned owl (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg)<br><br>
