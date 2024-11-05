@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_1920x1080.jpg&w=1000)Nov-05: [Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_1920x1080.jpg&w=1000)Nov-04: [Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)](https://www.bing.com/th?id=OHR.CumbriaAutumn_EN-US4102686749_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_1920x1080.jpg&w=1000)Nov-03: [Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_1920x1080.jpg&w=1000)Nov-02: [American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BisonYellowstone_EN-US4259322652_UHD.jpg)<br><br>
