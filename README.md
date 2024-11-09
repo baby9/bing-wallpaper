@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_1920x1080.jpg&w=1000)Nov-09: [Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_EN-US4411505209_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_1920x1080.jpg&w=1000)Nov-08: [Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_1920x1080.jpg&w=1000)Nov-07: [Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_EN-US4285635290_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_1920x1080.jpg&w=1000)Nov-06: [Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_EN-US4231457607_UHD.jpg)<br><br>
