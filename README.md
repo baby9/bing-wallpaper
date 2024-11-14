@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1920x1080.jpg&w=1000)Nov-14: [Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1920x1080.jpg&w=1000)Nov-13: [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1920x1080.jpg&w=1000)Nov-12: [Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_1920x1080.jpg&w=1000)Nov-11: [Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://www.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg)<br><br>
