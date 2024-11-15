@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1920x1080.jpg&w=1000)Nov-15: [Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_1920x1080.jpg&w=1000)Nov-14: [Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KelpForest_EN-US4745308334_1920x1080.jpg&w=1000)Nov-13: [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoveArch_EN-US4653050772_1920x1080.jpg&w=1000)Nov-12: [Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg)<br><br>
