@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_1920x1080.jpg&w=1000)Nov-18: [Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedStag_EN-US3910525623_1920x1080.jpg&w=1000)Nov-17: [Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_1920x1080.jpg&w=1000)Nov-16: [Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_1920x1080.jpg&w=1000)Nov-15: [Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg)<br><br>
