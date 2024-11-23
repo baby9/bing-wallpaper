@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1920x1080.jpg&w=1000)Nov-23: [Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1920x1080.jpg&w=1000)Nov-22: [Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LionCubs_EN-US4742616367_1920x1080.jpg&w=1000)Nov-21: [Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_1920x1080.jpg&w=1000)Nov-20: [Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg)<br><br>
