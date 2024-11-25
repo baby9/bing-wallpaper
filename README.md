@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_1920x1080.jpg&w=1000)Nov-25: [Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_1920x1080.jpg&w=1000)Nov-24: [Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_1920x1080.jpg&w=1000)Nov-23: [Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_1920x1080.jpg&w=1000)Nov-22: [Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg)<br><br>
