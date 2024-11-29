@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1920x1080.jpg&w=1000)Nov-29: [Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_1920x1080.jpg&w=1000)Nov-28: [Wild turkeys, New York (© John Cancalosi/Alamy)](https://www.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_1920x1080.jpg&w=1000)Nov-27: [Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_1920x1080.jpg&w=1000)Nov-26: [Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_UHD.jpg)<br><br>
