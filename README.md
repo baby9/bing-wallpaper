@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1920x1080.jpg&w=1000)Dec-02: [Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1920x1080.jpg&w=1000)Dec-01: [Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1920x1080.jpg&w=1000)Nov-30: [Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_1920x1080.jpg&w=1000)Nov-29: [Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg)<br><br>
