@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1920x1080.jpg&w=1000)Dec-03: [Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1920x1080.jpg&w=1000)Dec-02: [Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_1920x1080.jpg&w=1000)Dec-01: [Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_1920x1080.jpg&w=1000)Nov-30: [Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg)<br><br>
