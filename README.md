@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_1920x1080.jpg&w=1000)Dec-05: [Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_1920x1080.jpg&w=1000)Dec-04: [Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_EN-US7514650014_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_1920x1080.jpg&w=1000)Dec-03: [Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_1920x1080.jpg&w=1000)Dec-02: [Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_EN-US6949674639_UHD.jpg)<br><br>
