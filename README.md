@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_1920x1080.jpg&w=1000)Dec-11: [Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_1920x1080.jpg&w=1000)Dec-10: [The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_1920x1080.jpg&w=1000)Dec-09: [Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_1920x1080.jpg&w=1000)Dec-08: [Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_EN-US8084146311_UHD.jpg)<br><br>
