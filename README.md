@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1920x1080.jpg&w=1000)Dec-15: [Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1920x1080.jpg&w=1000)Dec-14: [Northern hawk-owl, Canada (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_1920x1080.jpg&w=1000)Dec-13: [Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_1920x1080.jpg&w=1000)Dec-12: [Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg)<br><br>
