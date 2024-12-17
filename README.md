@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1920x1080.jpg&w=1000)Dec-17: [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1920x1080.jpg&w=1000)Dec-16: [Salzburg, Austria (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_1920x1080.jpg&w=1000)Dec-15: [Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_1920x1080.jpg&w=1000)Dec-14: [Northern hawk-owl, Canada (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg)<br><br>
