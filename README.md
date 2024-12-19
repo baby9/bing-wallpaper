@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1920x1080.jpg&w=1000)Dec-19: [Christmas market in Sibiu, Romania (© Calin Stan/Alamy)](https://www.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_1920x1080.jpg&w=1000)Dec-18: [English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)](https://www.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_1920x1080.jpg&w=1000)Dec-17: [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_1920x1080.jpg&w=1000)Dec-16: [Salzburg, Austria (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg)<br><br>
