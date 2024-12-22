@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1920x1080.jpg&w=1000)Dec-22: [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1920x1080.jpg&w=1000)Dec-21: [Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://www.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_1920x1080.jpg&w=1000)Dec-20: [Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_1920x1080.jpg&w=1000)Dec-19: [Christmas market in Sibiu, Romania (© Calin Stan/Alamy)](https://www.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg)<br><br>
