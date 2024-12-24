@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_1920x1080.jpg&w=1000)Dec-24: [Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1920x1080.jpg&w=1000)Dec-23: [Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_1920x1080.jpg&w=1000)Dec-22: [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_1920x1080.jpg&w=1000)Dec-21: [Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://www.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg)<br><br>
