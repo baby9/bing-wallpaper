@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_1920x1080.jpg&w=1000)Dec-26: [Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://www.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_1920x1080.jpg&w=1000)Dec-25: [Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_1920x1080.jpg&w=1000)Dec-24: [Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_1920x1080.jpg&w=1000)Dec-23: [Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg)<br><br>
