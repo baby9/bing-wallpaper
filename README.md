@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1920x1080.jpg&w=1000)Dec-31: [New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1920x1080.jpg&w=1000)Dec-30: [Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_1920x1080.jpg&w=1000)Dec-29: [Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_EN-US6354350828_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_1920x1080.jpg&w=1000)Dec-28: [A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg)<br><br>
