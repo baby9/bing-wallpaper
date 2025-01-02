@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_1920x1080.jpg&w=1000)Jan-02: [Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_1920x1080.jpg&w=1000)Jan-01: [Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_EN-US7610036047_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_1920x1080.jpg&w=1000)Dec-31: [New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_1920x1080.jpg&w=1000)Dec-30: [Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg)<br><br>
