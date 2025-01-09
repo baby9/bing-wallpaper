@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1920x1080.jpg&w=1000)Jan-09: [The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)](https://www.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1920x1080.jpg&w=1000)Jan-08: [Snow on the Great Wall of China (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_1920x1080.jpg&w=1000)Jan-07: [Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_1920x1080.jpg&w=1000)Jan-06: [Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_EN-US9585765715_UHD.jpg)<br><br>
