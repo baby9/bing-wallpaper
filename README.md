@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1920x1080.jpg&w=1000)Jan-11: [Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_1920x1080.jpg&w=1000)Jan-10: [Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_1920x1080.jpg&w=1000)Jan-09: [The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)](https://www.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_1920x1080.jpg&w=1000)Jan-08: [Snow on the Great Wall of China (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg)<br><br>
