@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_1920x1080.jpg&w=1000)Jan-14: [Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_EN-US9699586606_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoastalWales_EN-US9397534673_1920x1080.jpg&w=1000)Jan-13: [Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_EN-US9397534673_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_1920x1080.jpg&w=1000)Jan-12: [Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)](https://www.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_1920x1080.jpg&w=1000)Jan-11: [Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg)<br><br>
