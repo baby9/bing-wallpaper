@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1920x1080.jpg&w=1000)Jan-22: [Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_1920x1080.jpg&w=1000)Jan-20: [Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)](https://www.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_1920x1080.jpg&w=1000)Jan-19: [Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_EN-US1020342235_UHD.jpg)<br><br>
