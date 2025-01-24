@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_1920x1080.jpg&w=1000)Jan-24: [Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)](https://www.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DeerValley_EN-US2128104711_1920x1080.jpg&w=1000)Jan-23: [Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_1920x1080.jpg&w=1000)Jan-22: [Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg)<br><br>
