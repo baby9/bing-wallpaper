@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_1920x1080.jpg&w=1000)Feb-04: [Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_1920x1080.jpg&w=1000)Feb-03: [Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_1920x1080.jpg&w=1000)Feb-02: [Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_1920x1080.jpg&w=1000)Feb-01: [National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)](https://www.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg)<br><br>
