@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1920x1080.jpg&w=1000)Feb-08: [Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_1920x1080.jpg&w=1000)Feb-07: [Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)](https://www.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_1920x1080.jpg&w=1000)Feb-06: [Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_EN-US3505877495_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_1920x1080.jpg&w=1000)Feb-05: [Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg)<br><br>
