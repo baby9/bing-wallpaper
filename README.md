@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_1920x1080.jpg&w=1000)Feb-11: [Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_1920x1080.jpg&w=1000)Feb-10: [Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_1920x1080.jpg&w=1000)Feb-09: [Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_1920x1080.jpg&w=1000)Feb-08: [Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg)<br><br>
