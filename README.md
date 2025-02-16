@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1920x1080.jpg&w=1000)Feb-16: [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_1920x1080.jpg&w=1000)Feb-15: [Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_EN-US8130053956_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_1920x1080.jpg&w=1000)Feb-14: [Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_1920x1080.jpg&w=1000)Feb-13: [Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)](https://www.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg)<br><br>
