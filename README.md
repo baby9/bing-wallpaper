@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_1920x1080.jpg&w=1000)Feb-19: [European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_1920x1080.jpg&w=1000)Feb-18: [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_1920x1080.jpg&w=1000)Feb-17: [The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)](https://www.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_1920x1080.jpg&w=1000)Feb-16: [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg)<br><br>
