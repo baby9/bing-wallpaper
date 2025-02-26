@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_1920x1080.jpg&w=1000)Feb-26: [Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_EN-US2452683665_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_1920x1080.jpg&w=1000)Feb-25: [Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_1920x1080.jpg&w=1000)Feb-24: [Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_1920x1080.jpg&w=1000)Feb-23: [Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg)<br><br>
