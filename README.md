@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_1920x1080.jpg&w=1000)Mar-02: [Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_EN-US3015819767_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_1920x1080.jpg&w=1000)Mar-01: [Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)](https://www.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_1920x1080.jpg&w=1000)Feb-28: [Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PolarCub_EN-US2740470421_1920x1080.jpg&w=1000)Feb-27: [Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarCub_EN-US2740470421_UHD.jpg)<br><br>
