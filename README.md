@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_1920x1080.jpg&w=1000)Mar-08: [Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_1920x1080.jpg&w=1000)Mar-07: [Plum blossoms in China (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_1920x1080.jpg&w=1000)Mar-06: [Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuratThani_EN-US3326265231_1920x1080.jpg&w=1000)Mar-05: [Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg)<br><br>
