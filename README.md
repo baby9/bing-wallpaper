@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_1920x1080.jpg&w=1000)Mar-12: [Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_1920x1080.jpg&w=1000)Mar-11: [Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NappingLion_EN-US8441298325_1920x1080.jpg&w=1000)Mar-10: [A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_1920x1080.jpg&w=1000)Mar-09: [St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg)<br><br>
