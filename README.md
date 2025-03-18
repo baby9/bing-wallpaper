@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_1920x1080.jpg&w=1000)Mar-18: [Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_1920x1080.jpg&w=1000)Mar-17: [Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_1920x1080.jpg&w=1000)Mar-16: [Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)](https://www.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_1920x1080.jpg&w=1000)Mar-15: [The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg)<br><br>
