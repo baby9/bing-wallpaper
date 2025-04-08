@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_1920x1080.jpg&w=1000)Apr-08: [Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_1920x1080.jpg&w=1000)Apr-07: [North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PeabodyBaltimore_EN-US0036943577_1920x1080.jpg&w=1000)Apr-06: [George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_EN-US0036943577_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_EN-US9970203395_1920x1080.jpg&w=1000)Apr-05: [Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_EN-US9970203395_UHD.jpg)<br><br>
