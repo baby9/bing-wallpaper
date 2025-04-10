@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_1920x1080.jpg&w=1000)Apr-10: [Red fox cubs near their den (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.LittleFoxes_EN-US8078019606_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_1920x1080.jpg&w=1000)Apr-09: [Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_EN-US8006377229_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueNaxos_EN-US0374867860_1920x1080.jpg&w=1000)Apr-09: [Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_EN-US0374867860_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_1920x1080.jpg&w=1000)Apr-08: [Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_EN-US0177055246_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_1920x1080.jpg&w=1000)Apr-07: [North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_EN-US0090956170_UHD.jpg)<br><br>
