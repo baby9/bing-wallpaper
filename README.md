@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1920x1080.jpg&w=1000)Apr-14: [Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_1920x1080.jpg&w=1000)Apr-13: [Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_EN-US8039751329_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_1920x1080.jpg&w=1000)Apr-12: [View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_EN-US8143075629_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_1920x1080.jpg&w=1000)Apr-11: [Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_EN-US8114977846_UHD.jpg)<br><br>
