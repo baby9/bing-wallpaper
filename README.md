@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_1920x1080.jpg&w=1000)Apr-18: [Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_EN-US1897945450_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1920x1080.jpg&w=1000)Apr-17: [Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1920x1080.jpg&w=1000)Apr-16: [Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1920x1080.jpg&w=1000)Apr-15: [Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg)<br><br>
