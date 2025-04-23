@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1920x1080.jpg&w=1000)Apr-23: [Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1920x1080.jpg&w=1000)Apr-22: [Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1920x1080.jpg&w=1000)Apr-21: [Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1920x1080.jpg&w=1000)Apr-20: [Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg)<br><br>
