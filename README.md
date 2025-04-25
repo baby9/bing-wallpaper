@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1920x1080.jpg&w=1000)Apr-25: [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1920x1080.jpg&w=1000)Apr-24: [Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1920x1080.jpg&w=1000)Apr-23: [Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1920x1080.jpg&w=1000)Apr-22: [Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg)<br><br>
