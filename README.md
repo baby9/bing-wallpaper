@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_1920x1080.jpg&w=1000)Apr-27: [Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1920x1080.jpg&w=1000)Apr-26: [Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1920x1080.jpg&w=1000)Apr-25: [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1920x1080.jpg&w=1000)Apr-24: [Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg)<br><br>
