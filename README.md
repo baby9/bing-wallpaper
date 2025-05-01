@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1920x1080.jpg&w=1000)May-01: [Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1920x1080.jpg&w=1000)Apr-30: [Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1920x1080.jpg&w=1000)Apr-29: [Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_1920x1080.jpg&w=1000)Apr-28: [Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_EN-US3494359572_UHD.jpg)<br><br>
