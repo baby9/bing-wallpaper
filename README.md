@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_1920x1080.jpg&w=1000)May-02: [Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_1920x1080.jpg&w=1000)May-01: [Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_1920x1080.jpg&w=1000)Apr-30: [Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_1920x1080.jpg&w=1000)Apr-29: [Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg)<br><br>
