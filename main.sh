@@ -24,6 +24,7 @@ function updateREADME {
             image_UHD=$(echo $image_url | sed "s#$(echo $image_url | awk -F '.' '{print $(NF-1)}' | awk -F '_' '{print $NF}')#UHD#g")
             update_content="![](${image_url}&w=1000)${date_month_day}: [${copyright}](${image_UHD})<br><br>"
 
+            # Keep 30 days images in README.md and update history
             sed -i "1a $update_content" README.md
             sed -i '32,$d' README.md
             if [ ! -d history/${date_year} ]; then
