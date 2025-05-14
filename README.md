@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_1920x1080.jpg&w=1000)May-14: [Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_EN-US6889153804_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TorresChile_EN-US6814348961_1920x1080.jpg&w=1000)May-13: [Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_EN-US6814348961_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1920x1080.jpg&w=1000)May-12: [An iris garden in Tokyo, Japan (© M.Arai/Getty Images)](https://www.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1920x1080.jpg&w=1000)May-11: [Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_1920x1080.jpg&w=1000)Apr-17: [Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_EN-US1037921621_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_1920x1080.jpg&w=1000)Apr-16: [Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_EN-US1000475196_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeachArt_EN-US0911239616_1920x1080.jpg&w=1000)Apr-15: [Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_EN-US0911239616_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_1920x1080.jpg&w=1000)Apr-14: [Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_EN-US0872892049_UHD.jpg)<br><br>
