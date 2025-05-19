@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1920x1080.jpg&w=1000)May-19: [Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1920x1080.jpg&w=1000)May-18: ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1920x1080.jpg&w=1000)May-17: [A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_1920x1080.jpg&w=1000)May-16: [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1920x1080.jpg&w=1000)Apr-22: [Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1920x1080.jpg&w=1000)Apr-21: [Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_1920x1080.jpg&w=1000)Apr-20: [Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_EN-US2535495337_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ZionValley_EN-US2520458606_1920x1080.jpg&w=1000)Apr-19: [Zion National Park, Utah (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_EN-US2520458606_UHD.jpg)<br><br>
