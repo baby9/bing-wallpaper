@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1920x1080.jpg&w=1000)May-21: [Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1920x1080.jpg&w=1000)May-20: [Honey bee on lavender flowers (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1920x1080.jpg&w=1000)May-19: [Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1920x1080.jpg&w=1000)May-18: ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1920x1080.jpg&w=1000)Apr-24: [Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1920x1080.jpg&w=1000)Apr-23: [Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_1920x1080.jpg&w=1000)Apr-22: [Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_EN-US2710865870_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_1920x1080.jpg&w=1000)Apr-21: [Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_EN-US2563220033_UHD.jpg)<br><br>
