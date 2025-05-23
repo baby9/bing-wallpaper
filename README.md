@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_1920x1080.jpg&w=1000)May-23: [A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1920x1080.jpg&w=1000)May-22: [Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1920x1080.jpg&w=1000)May-21: [Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1920x1080.jpg&w=1000)May-20: [Honey bee on lavender flowers (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_1920x1080.jpg&w=1000)Apr-26: [Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_1920x1080.jpg&w=1000)Apr-25: [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_1920x1080.jpg&w=1000)Apr-24: [Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_EN-US3294247007_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_1920x1080.jpg&w=1000)Apr-23: [Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_EN-US3262022178_UHD.jpg)<br><br>
