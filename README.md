@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_1920x1080.jpg&w=1000)Jun-08: [Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_EN-US8941740506_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_1920x1080.jpg&w=1000)Jun-07: [Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_EN-US8903844619_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1920x1080.jpg&w=1000)Jun-06: [Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1920x1080.jpg&w=1000)Jun-05: [Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_1920x1080.jpg&w=1000)May-12: [An iris garden in Tokyo, Japan (© M.Arai/Getty Images)](https://www.bing.com/th?id=OHR.IrisGarden_EN-US6778843108_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_1920x1080.jpg&w=1000)May-11: [Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_EN-US6709981831_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_1920x1080.jpg&w=1000)May-10: [Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_EN-US6605011856_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_1920x1080.jpg&w=1000)May-09: [Common chameleon (© Photostock-Israel/SPL/Getty Images)](https://www.bing.com/th?id=OHR.CuteChameleon_EN-US6483346105_UHD.jpg)<br><br>
