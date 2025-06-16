@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1920x1080.jpg&w=1000)Jun-16: [Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1920x1080.jpg&w=1000)Jun-15: [Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_1920x1080.jpg&w=1000)Jun-14: [Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)](https://www.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_1920x1080.jpg&w=1000)Jun-13: [Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1920x1080.jpg&w=1000)May-20: [Honey bee on lavender flowers (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_1920x1080.jpg&w=1000)May-19: [Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_EN-US3808058743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_1920x1080.jpg&w=1000)May-18: ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_1920x1080.jpg&w=1000)May-17: [A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg)<br><br>
