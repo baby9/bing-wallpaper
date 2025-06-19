@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1920x1080.jpg&w=1000)Jun-19: [Texas State Capitol in Austin (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1920x1080.jpg&w=1000)Jun-18: [Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1920x1080.jpg&w=1000)Jun-17: [Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1920x1080.jpg&w=1000)Jun-16: [Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_1920x1080.jpg&w=1000)May-23: [A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_1920x1080.jpg&w=1000)May-22: [Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_EN-US3968050605_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_1920x1080.jpg&w=1000)May-21: [Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_EN-US3919106941_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_1920x1080.jpg&w=1000)May-20: [Honey bee on lavender flowers (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_EN-US3860322899_UHD.jpg)<br><br>
