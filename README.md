@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg&w=1000)Jun-22: [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1920x1080.jpg&w=1000)Jun-21: [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1920x1080.jpg&w=1000)Jun-20: [Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1920x1080.jpg&w=1000)Jun-19: [Texas State Capitol in Austin (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1920x1080.jpg&w=1000)May-26: [Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)](https://www.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_1920x1080.jpg&w=1000)May-25: [Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_EN-US3361647368_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JotunheimenPark_EN-US4200824377_1920x1080.jpg&w=1000)May-24: [Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_EN-US4200824377_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_1920x1080.jpg&w=1000)May-23: [A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_EN-US4083359630_UHD.jpg)<br><br>
