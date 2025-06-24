@@ -174,3 +174,4 @@
 ![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1920x1080.jpg&w=1000)Jun-21: [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg&w=1000)Jun-22: [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1920x1080.jpg&w=1000)Jun-23: [The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1920x1080.jpg&w=1000)Jun-24: [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg)<br><br>
