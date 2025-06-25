@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1920x1080.jpg&w=1000)Jun-25: [St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1920x1080.jpg&w=1000)Jun-24: [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1920x1080.jpg&w=1000)Jun-23: [The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg&w=1000)Jun-22: [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1920x1080.jpg&w=1000)May-29: [Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_1920x1080.jpg&w=1000)May-28: [Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_EN-US4867923884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_1920x1080.jpg&w=1000)May-27: [Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_EN-US4805820773_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_1920x1080.jpg&w=1000)May-26: [Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)](https://www.bing.com/th?id=OHR.ArlingtonSunrise_EN-US4503302075_UHD.jpg)<br><br>
