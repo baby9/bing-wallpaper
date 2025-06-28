@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&w=1000)Jun-28: [Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1920x1080.jpg&w=1000)Jun-27: [Splendid leaf frog (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1920x1080.jpg&w=1000)Jun-26: [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1920x1080.jpg&w=1000)Jun-25: [St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1920x1080.jpg&w=1000)Jun-01: [Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_1920x1080.jpg&w=1000)May-31: [Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_1920x1080.jpg&w=1000)May-30: [Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_EN-US1765916005_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_1920x1080.jpg&w=1000)May-29: [Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_EN-US4967052818_UHD.jpg)<br><br>
