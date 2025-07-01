@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1920x1080.jpg&w=1000)Jul-01: [Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1920x1080.jpg&w=1000)Jun-30: [Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1920x1080.jpg&w=1000)Jun-29: [Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&w=1000)Jun-28: [Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_1920x1080.jpg&w=1000)Jun-04: [The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1920x1080.jpg&w=1000)Jun-03: [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_1920x1080.jpg&w=1000)Jun-02: [Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_1920x1080.jpg&w=1000)Jun-01: [Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg)<br><br>
