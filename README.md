@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_1920x1080.jpg&w=1000)Jul-03: [Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_EN-US0442967532_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_1920x1080.jpg&w=1000)Jul-02: [Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_EN-US0391262783_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1920x1080.jpg&w=1000)Jul-01: [Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1920x1080.jpg&w=1000)Jun-30: [Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_1920x1080.jpg&w=1000)Jun-06: [Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_EN-US8863709180_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_1920x1080.jpg&w=1000)Jun-05: [Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_1920x1080.jpg&w=1000)Jun-04: [The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_1920x1080.jpg&w=1000)Jun-03: [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg)<br><br>
