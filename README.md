@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1920x1080.jpg&w=1000)Jul-09: [Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1920x1080.jpg&w=1000)Jul-08: [Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1920x1080.jpg&w=1000)Jul-07: [Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1920x1080.jpg&w=1000)Jul-06: [Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1920x1080.jpg&w=1000)Jun-12: [Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_1920x1080.jpg&w=1000)Jun-11: [Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_EN-US9397449472_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_1920x1080.jpg&w=1000)Jun-10: [Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_EN-US9045585896_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_1920x1080.jpg&w=1000)Jun-09: [Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_EN-US9005720216_UHD.jpg)<br><br>
