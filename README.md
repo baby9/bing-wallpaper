@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1920x1080.jpg&w=1000)Jul-12: [Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1920x1080.jpg&w=1000)Jul-11: [Tokyo at sunrise (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_1920x1080.jpg&w=1000)Jul-10: [Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_EN-US1367794856_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1920x1080.jpg&w=1000)Jul-09: [Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.RheaDad_EN-US1643943847_1920x1080.jpg&w=1000)Jun-15: [Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_1920x1080.jpg&w=1000)Jun-14: [Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)](https://www.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_1920x1080.jpg&w=1000)Jun-13: [Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_EN-US2785372768_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_1920x1080.jpg&w=1000)Jun-12: [Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_EN-US9433220487_UHD.jpg)<br><br>
