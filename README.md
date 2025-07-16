@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1920x1080.jpg&w=1000)Jul-16: [Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1920x1080.jpg&w=1000)Jul-15: [Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1920x1080.jpg&w=1000)Jul-14: [Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_EN-US4689572794_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1920x1080.jpg&w=1000)Jul-13: [Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1920x1080.jpg&w=1000)Jun-19: [Texas State Capitol in Austin (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1920x1080.jpg&w=1000)Jun-18: [Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_1920x1080.jpg&w=1000)Jun-17: [Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_EN-US1850139942_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_1920x1080.jpg&w=1000)Jun-16: [Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg)<br><br>
