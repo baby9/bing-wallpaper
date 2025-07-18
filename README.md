@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1920x1080.jpg&w=1000)Jul-18: [Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1920x1080.jpg&w=1000)Jul-17: [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1920x1080.jpg&w=1000)Jul-16: [Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1920x1080.jpg&w=1000)Jul-15: [Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1920x1080.jpg&w=1000)Jun-21: [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1920x1080.jpg&w=1000)Jun-20: [Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_1920x1080.jpg&w=1000)Jun-19: [Texas State Capitol in Austin (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.TexasCapitol_EN-US1992205396_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_1920x1080.jpg&w=1000)Jun-18: [Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_EN-US1924189362_UHD.jpg)<br><br>
