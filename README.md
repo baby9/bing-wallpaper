@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1920x1080.jpg&w=1000)Jul-20: [The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1920x1080.jpg&w=1000)Jul-19: [Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1920x1080.jpg&w=1000)Jul-18: [Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1920x1080.jpg&w=1000)Jul-17: [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1920x1080.jpg&w=1000)Jun-23: [The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_1920x1080.jpg&w=1000)Jun-22: [Amazon rainforest, Ecuador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_EN-US2195278379_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_1920x1080.jpg&w=1000)Jun-21: [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-US2127484447_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_1920x1080.jpg&w=1000)Jun-20: [Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_EN-US2057542769_UHD.jpg)<br><br>
