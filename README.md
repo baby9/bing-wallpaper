@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1920x1080.jpg&w=1000)Jul-23: [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1920x1080.jpg&w=1000)Jul-22: [Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_1920x1080.jpg&w=1000)Jul-21: [Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1920x1080.jpg&w=1000)Jul-20: [The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1920x1080.jpg&w=1000)Jun-26: [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1920x1080.jpg&w=1000)Jun-25: [St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_1920x1080.jpg&w=1000)Jun-24: [Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_EN-US2369284902_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_1920x1080.jpg&w=1000)Jun-23: [The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_EN-US2259441179_UHD.jpg)<br><br>
