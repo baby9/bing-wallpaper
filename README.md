@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1920x1080.jpg&w=1000)Jul-25: [Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1920x1080.jpg&w=1000)Jul-24: [Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1920x1080.jpg&w=1000)Jul-23: [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_1920x1080.jpg&w=1000)Jul-22: [Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&w=1000)Jun-28: [Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1920x1080.jpg&w=1000)Jun-27: [Splendid leaf frog (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1920x1080.jpg&w=1000)Jun-26: [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_1920x1080.jpg&w=1000)Jun-25: [St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-US2433998806_UHD.jpg)<br><br>
