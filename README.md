@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1920x1080.jpg&w=1000)Jul-26: [Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1920x1080.jpg&w=1000)Jul-25: [Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1920x1080.jpg&w=1000)Jul-24: [Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1920x1080.jpg&w=1000)Jul-23: [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1920x1080.jpg&w=1000)Jun-29: [Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&w=1000)Jun-28: [Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_1920x1080.jpg&w=1000)Jun-27: [Splendid leaf frog (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_EN-US9346105347_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_1920x1080.jpg&w=1000)Jun-26: [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_EN-US2494437641_UHD.jpg)<br><br>
