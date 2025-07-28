@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1920x1080.jpg&w=1000)Jul-28: [Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1920x1080.jpg&w=1000)Jul-27: [School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1920x1080.jpg&w=1000)Jul-26: [Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1920x1080.jpg&w=1000)Jul-25: [Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_1920x1080.jpg&w=1000)Jul-01: [Fishing village of Tilting, Fogo Island, Newfoundland and Labrador, Canada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_EN-US0231478181_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_1920x1080.jpg&w=1000)Jun-30: [Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_EN-US2390330059_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_1920x1080.jpg&w=1000)Jun-29: [Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_EN-US9494080788_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_1920x1080.jpg&w=1000)Jun-28: [Rainbow flags at New York Pride (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_EN-US9405333794_UHD.jpg)<br><br>
