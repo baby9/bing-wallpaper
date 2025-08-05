@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_1920x1080.jpg&w=1000)Aug-05: [Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1920x1080.jpg&w=1000)Aug-04: [Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1920x1080.jpg&w=1000)Aug-03: [Sunflowers in a field in summer (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1920x1080.jpg&w=1000)Aug-02: [Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_1920x1080.jpg&w=1000)Jul-09: [Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_EN-US1235857389_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_1920x1080.jpg&w=1000)Jul-08: [Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_EN-US0983713623_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_1920x1080.jpg&w=1000)Jul-07: [Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-US0812287314_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_1920x1080.jpg&w=1000)Jul-06: [Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_EN-US0638943216_UHD.jpg)<br><br>
