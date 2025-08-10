@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1920x1080.jpg&w=1000)Aug-10: [Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1920x1080.jpg&w=1000)Aug-09: [Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1920x1080.jpg&w=1000)Aug-08: [Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1920x1080.jpg&w=1000)Aug-07: [Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1920x1080.jpg&w=1000)Jul-14: [Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_EN-US4689572794_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_1920x1080.jpg&w=1000)Jul-13: [Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_EN-US4476950150_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_1920x1080.jpg&w=1000)Jul-12: [Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-US4354285846_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_1920x1080.jpg&w=1000)Jul-11: [Tokyo at sunrise (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_EN-US4269783992_UHD.jpg)<br><br>
