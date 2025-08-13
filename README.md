@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1920x1080.jpg&w=1000)Aug-13: [A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1920x1080.jpg&w=1000)Aug-12: [African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1920x1080.jpg&w=1000)Aug-11: [Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1920x1080.jpg&w=1000)Aug-10: [Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1920x1080.jpg&w=1000)Jul-17: [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_1920x1080.jpg&w=1000)Jul-16: [Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_EN-US5062419351_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_1920x1080.jpg&w=1000)Jul-15: [Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_EN-US4826682211_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.YoungShark_EN-US4689572794_1920x1080.jpg&w=1000)Jul-14: [Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_EN-US4689572794_UHD.jpg)<br><br>
