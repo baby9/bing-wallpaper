@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1920x1080.jpg&w=1000)Aug-16: [Colorful beehives in Italy (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1920x1080.jpg&w=1000)Aug-15: [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1920x1080.jpg&w=1000)Aug-14: [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1920x1080.jpg&w=1000)Aug-13: [A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BigMoon_EN-US5436003142_1920x1080.jpg&w=1000)Jul-20: [The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MothWeek_EN-US5360572836_1920x1080.jpg&w=1000)Jul-19: [Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_1920x1080.jpg&w=1000)Jul-18: [Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_1920x1080.jpg&w=1000)Jul-17: [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg)<br><br>
