@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1920x1080.jpg&w=1000)Aug-22: [Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1920x1080.jpg&w=1000)Aug-21: [Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1920x1080.jpg&w=1000)Aug-20: [The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1920x1080.jpg&w=1000)Aug-19: [Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)](https://www.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1920x1080.jpg&w=1000)Jul-26: [Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1920x1080.jpg&w=1000)Jul-25: [Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_1920x1080.jpg&w=1000)Jul-24: [Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_1920x1080.jpg&w=1000)Jul-23: [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)<br><br>
