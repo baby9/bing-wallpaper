@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_1920x1080.jpg&w=1000)Aug-24: [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1920x1080.jpg&w=1000)Aug-23: [St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1920x1080.jpg&w=1000)Aug-22: [Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1920x1080.jpg&w=1000)Aug-21: [Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_1920x1080.jpg&w=1000)Jul-28: [Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_EN-US1803457525_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_1920x1080.jpg&w=1000)Jul-27: [School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_1920x1080.jpg&w=1000)Jul-26: [Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_1920x1080.jpg&w=1000)Jul-25: [Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg)<br><br>
