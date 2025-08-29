@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1920x1080.jpg&w=1000)Aug-29: [Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1920x1080.jpg&w=1000)Aug-28: [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1920x1080.jpg&w=1000)Aug-27: [Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1920x1080.jpg&w=1000)Aug-26: [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1920x1080.jpg&w=1000)Aug-02: [Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1920x1080.jpg&w=1000)Aug-01: [Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_1920x1080.jpg&w=1000)Jul-31: [Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_EN-US9264861498_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_1920x1080.jpg&w=1000)Jul-30: ['Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_EN-US5078679271_UHD.jpg)<br><br>
