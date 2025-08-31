@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1920x1080.jpg&w=1000)Aug-31: [Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1920x1080.jpg&w=1000)Aug-30: [Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1920x1080.jpg&w=1000)Aug-29: [Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1920x1080.jpg&w=1000)Aug-28: [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_1920x1080.jpg&w=1000)Aug-04: [Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_1920x1080.jpg&w=1000)Aug-03: [Sunflowers in a field in summer (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_1920x1080.jpg&w=1000)Aug-02: [Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_EN-US8712481828_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_1920x1080.jpg&w=1000)Aug-01: [Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-US5923216873_UHD.jpg)<br><br>
