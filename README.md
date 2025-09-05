@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1920x1080.jpg&w=1000)Sep-05: [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1920x1080.jpg&w=1000)Sep-04: [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1920x1080.jpg&w=1000)Sep-03: [Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1920x1080.jpg&w=1000)Sep-02: [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1920x1080.jpg&w=1000)Aug-09: [Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1920x1080.jpg&w=1000)Aug-08: [Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_1920x1080.jpg&w=1000)Aug-07: [Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_EN-US0554204214_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_1920x1080.jpg&w=1000)Aug-06: [Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_EN-US7451684312_UHD.jpg)<br><br>
