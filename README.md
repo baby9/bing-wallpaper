@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg&w=1000)Sep-07: [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1920x1080.jpg&w=1000)Sep-06: [Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1920x1080.jpg&w=1000)Sep-05: [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1920x1080.jpg&w=1000)Sep-04: [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1920x1080.jpg&w=1000)Aug-11: [Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_1920x1080.jpg&w=1000)Aug-10: [Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_EN-US8440386444_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_1920x1080.jpg&w=1000)Aug-09: [Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_EN-US6499689741_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_1920x1080.jpg&w=1000)Aug-08: [Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-US5953375078_UHD.jpg)<br><br>
