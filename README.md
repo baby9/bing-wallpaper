@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&w=1000)Sep-10: [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1920x1080.jpg&w=1000)Sep-09: [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1920x1080.jpg&w=1000)Sep-08: [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg&w=1000)Sep-07: [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1920x1080.jpg&w=1000)Aug-14: [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1920x1080.jpg&w=1000)Aug-13: [A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1920x1080.jpg&w=1000)Aug-12: [African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_1920x1080.jpg&w=1000)Aug-11: [Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_EN-US8546897995_UHD.jpg)<br><br>
