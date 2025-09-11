@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1920x1080.jpg&w=1000)Sep-11: [Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&w=1000)Sep-10: [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1920x1080.jpg&w=1000)Sep-09: [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1920x1080.jpg&w=1000)Sep-08: [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1920x1080.jpg&w=1000)Aug-15: [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1920x1080.jpg&w=1000)Aug-14: [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_1920x1080.jpg&w=1000)Aug-13: [A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_1920x1080.jpg&w=1000)Aug-12: [African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_EN-US8723347309_UHD.jpg)<br><br>
