@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1920x1080.jpg&w=1000)Sep-13: [Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1920x1080.jpg&w=1000)Sep-12: [Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1920x1080.jpg&w=1000)Sep-11: [Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&w=1000)Sep-10: [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_1920x1080.jpg&w=1000)Aug-17: [Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_EN-US1600601632_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_1920x1080.jpg&w=1000)Aug-16: [Colorful beehives in Italy (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_EN-US1476944743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_1920x1080.jpg&w=1000)Aug-15: [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_1920x1080.jpg&w=1000)Aug-14: [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg)<br><br>
