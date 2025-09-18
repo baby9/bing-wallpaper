@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1920x1080.jpg&w=1000)Sep-18: [Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_1920x1080.jpg&w=1000)Sep-17: [Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1920x1080.jpg&w=1000)Sep-16: [Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1920x1080.jpg&w=1000)Sep-15: [Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_1920x1080.jpg&w=1000)Aug-22: [Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_EN-US2419102005_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_1920x1080.jpg&w=1000)Aug-21: [Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_EN-US2132045619_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_1920x1080.jpg&w=1000)Aug-20: [The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-US2046177235_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_1920x1080.jpg&w=1000)Aug-19: [Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)](https://www.bing.com/th?id=OHR.SolarAviation_EN-US1940905760_UHD.jpg)<br><br>
