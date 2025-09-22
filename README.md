@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&w=1000)Sep-22: [Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&w=1000)Sep-21: [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1920x1080.jpg&w=1000)Sep-20: [Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1920x1080.jpg&w=1000)Sep-19: [Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1920x1080.jpg&w=1000)Aug-26: [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1920x1080.jpg&w=1000)Aug-25: [Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_1920x1080.jpg&w=1000)Aug-24: [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_1920x1080.jpg&w=1000)Aug-23: [St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg)<br><br>
