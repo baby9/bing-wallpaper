@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg&w=1000)Sep-23: [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&w=1000)Sep-22: [Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&w=1000)Sep-21: [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1920x1080.jpg&w=1000)Sep-20: [Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1920x1080.jpg&w=1000)Aug-27: [Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1920x1080.jpg&w=1000)Aug-26: [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_1920x1080.jpg&w=1000)Aug-25: [Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_1920x1080.jpg&w=1000)Aug-24: [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg)<br><br>
