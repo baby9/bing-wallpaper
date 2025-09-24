@@ -266,3 +266,4 @@
 ![](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&w=1000)Sep-21: [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&w=1000)Sep-22: [Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg&w=1000)Sep-23: [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg&w=1000)Sep-24: [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg)<br><br>
