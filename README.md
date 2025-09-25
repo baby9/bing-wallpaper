@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1920x1080.jpg&w=1000)Sep-25: [Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg&w=1000)Sep-24: [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg&w=1000)Sep-23: [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&w=1000)Sep-22: [Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1920x1080.jpg&w=1000)Aug-29: [Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1920x1080.jpg&w=1000)Aug-28: [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_1920x1080.jpg&w=1000)Aug-27: [Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_EN-US3557234950_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_1920x1080.jpg&w=1000)Aug-26: [Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_EN-US3489439665_UHD.jpg)<br><br>
