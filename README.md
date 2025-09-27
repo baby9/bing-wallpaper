@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1920x1080.jpg&w=1000)Sep-27: [Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1920x1080.jpg&w=1000)Sep-26: [Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1920x1080.jpg&w=1000)Sep-25: [Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg&w=1000)Sep-24: [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1920x1080.jpg&w=1000)Aug-31: [Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1920x1080.jpg&w=1000)Aug-30: [Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_1920x1080.jpg&w=1000)Aug-29: [Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_EN-US3692727880_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_1920x1080.jpg&w=1000)Aug-28: [Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_EN-US3605994040_UHD.jpg)<br><br>
