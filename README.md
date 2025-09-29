@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1920x1080.jpg&w=1000)Sep-29: [The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1920x1080.jpg&w=1000)Sep-28: [Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1920x1080.jpg&w=1000)Sep-27: [Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1920x1080.jpg&w=1000)Sep-26: [Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1920x1080.jpg&w=1000)Sep-02: [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1920x1080.jpg&w=1000)Sep-01: [Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)](https://www.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1920x1080.jpg&w=1000)Aug-31: [Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_1920x1080.jpg&w=1000)Aug-30: [Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-US3819740955_UHD.jpg)<br><br>
