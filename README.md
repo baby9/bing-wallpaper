@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1920x1080.jpg&w=1000)Sep-30: [Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1920x1080.jpg&w=1000)Sep-29: [The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1920x1080.jpg&w=1000)Sep-28: [Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1920x1080.jpg&w=1000)Sep-27: [Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1920x1080.jpg&w=1000)Sep-03: [Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1920x1080.jpg&w=1000)Sep-02: [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_1920x1080.jpg&w=1000)Sep-01: [Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)](https://www.bing.com/th?id=OHR.LaborDayChicago_EN-US3947410593_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_1920x1080.jpg&w=1000)Aug-31: [Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_EN-US3893566724_UHD.jpg)<br><br>
