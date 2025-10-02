@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1920x1080.jpg&w=1000)Oct-02: [Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1920x1080.jpg&w=1000)Oct-01: [Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1920x1080.jpg&w=1000)Sep-30: [Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1920x1080.jpg&w=1000)Sep-29: [The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1920x1080.jpg&w=1000)Sep-05: [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_1920x1080.jpg&w=1000)Sep-04: [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_1920x1080.jpg&w=1000)Sep-03: [Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_1920x1080.jpg&w=1000)Sep-02: [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg)<br><br>
