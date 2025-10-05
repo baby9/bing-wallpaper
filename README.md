@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&w=1000)Oct-04: [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1920x1080.jpg&w=1000)Oct-03: [Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1920x1080.jpg&w=1000)Oct-02: [Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1920x1080.jpg&w=1000)Sep-08: [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg&w=1000)Sep-07: [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_1920x1080.jpg&w=1000)Sep-06: [Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_1920x1080.jpg&w=1000)Sep-05: [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg)<br><br>
