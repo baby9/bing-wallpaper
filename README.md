@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&w=1000)Oct-07: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&w=1000)Oct-06: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&w=1000)Oct-04: [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&w=1000)Sep-10: [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1920x1080.jpg&w=1000)Sep-09: [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1920x1080.jpg&w=1000)Sep-08: [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_1920x1080.jpg&w=1000)Sep-07: [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg)<br><br>
