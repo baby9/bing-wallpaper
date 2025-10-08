@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&w=1000)Oct-08: [Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&w=1000)Oct-07: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&w=1000)Oct-06: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1920x1080.jpg&w=1000)Sep-11: [Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&w=1000)Sep-10: [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1920x1080.jpg&w=1000)Sep-09: [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_1920x1080.jpg&w=1000)Sep-08: [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)<br><br>
