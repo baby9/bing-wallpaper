@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1920x1080.jpg&w=1000)Oct-09: [The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&w=1000)Oct-08: [Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&w=1000)Oct-07: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&w=1000)Oct-06: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1920x1080.jpg&w=1000)Sep-12: [Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_1920x1080.jpg&w=1000)Sep-11: [Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.LibertyManhattan_EN-US8781721086_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_1920x1080.jpg&w=1000)Sep-10: [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_1920x1080.jpg&w=1000)Sep-09: [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)<br><br>
