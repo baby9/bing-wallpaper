@@ -283,3 +283,4 @@
 ![](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&w=1000)Oct-08: [Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1920x1080.jpg&w=1000)Oct-09: [The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&w=1000)Oct-10: [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&w=1000)Oct-11: [Wood duck hen (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)<br><br>
