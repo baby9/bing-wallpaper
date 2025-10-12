@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&w=1000)Oct-12: [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&w=1000)Oct-11: [Wood duck hen (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&w=1000)Oct-10: [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1920x1080.jpg&w=1000)Oct-09: [The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1920x1080.jpg&w=1000)Sep-15: [Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1920x1080.jpg&w=1000)Sep-14: [A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1920x1080.jpg&w=1000)Sep-13: [Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_1920x1080.jpg&w=1000)Sep-12: [Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_EN-US8860882818_UHD.jpg)<br><br>
