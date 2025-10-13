@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1920x1080.jpg&w=1000)Oct-13: [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&w=1000)Oct-12: [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&w=1000)Oct-11: [Wood duck hen (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&w=1000)Oct-10: [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1920x1080.jpg&w=1000)Sep-16: [Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1920x1080.jpg&w=1000)Sep-15: [Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_1920x1080.jpg&w=1000)Sep-14: [A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_EN-US9003533736_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_1920x1080.jpg&w=1000)Sep-13: [Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_EN-US8949381326_UHD.jpg)<br><br>
