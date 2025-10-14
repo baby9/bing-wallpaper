@@ -286,3 +286,4 @@
 ![](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&w=1000)Oct-11: [Wood duck hen (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&w=1000)Oct-12: [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1920x1080.jpg&w=1000)Oct-13: [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1920x1080.jpg&w=1000)Oct-14: [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg)<br><br>
