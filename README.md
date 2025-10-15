@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&w=1000)Oct-15: [Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1920x1080.jpg&w=1000)Oct-14: [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1920x1080.jpg&w=1000)Oct-13: [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&w=1000)Oct-12: [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1920x1080.jpg&w=1000)Sep-18: [Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_1920x1080.jpg&w=1000)Sep-17: [Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_1920x1080.jpg&w=1000)Sep-16: [Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_1920x1080.jpg&w=1000)Sep-15: [Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://www.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg)<br><br>
