@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1920x1080.jpg&w=1000)Oct-18: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&w=1000)Oct-17: [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1920x1080.jpg&w=1000)Oct-16: [Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&w=1000)Oct-15: [Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&w=1000)Sep-21: [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1920x1080.jpg&w=1000)Sep-20: [Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1920x1080.jpg&w=1000)Sep-19: [Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_1920x1080.jpg&w=1000)Sep-18: [Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_EN-US9846056364_UHD.jpg)<br><br>
