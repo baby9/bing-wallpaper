@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1920x1080.jpg&w=1000)Oct-19: [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1920x1080.jpg&w=1000)Oct-18: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&w=1000)Oct-17: [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1920x1080.jpg&w=1000)Oct-16: [Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_1920x1080.jpg&w=1000)Sep-22: [Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-US8237887036_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_1920x1080.jpg&w=1000)Sep-21: [Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-US7982442590_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_1920x1080.jpg&w=1000)Sep-20: [Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-US7916182497_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_1920x1080.jpg&w=1000)Sep-19: [Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_EN-US7884567746_UHD.jpg)<br><br>
