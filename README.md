@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1920x1080.jpg&w=1000)Oct-23: [Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1920x1080.jpg&w=1000)Oct-22: [Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1920x1080.jpg&w=1000)Oct-21: [A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1920x1080.jpg&w=1000)Oct-20: [A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1920x1080.jpg&w=1000)Sep-26: [Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_1920x1080.jpg&w=1000)Sep-25: [Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_1920x1080.jpg&w=1000)Sep-24: [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_1920x1080.jpg&w=1000)Sep-23: [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg)<br><br>
