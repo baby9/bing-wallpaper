@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1920x1080.jpg&w=1000)Oct-26: [Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1920x1080.jpg&w=1000)Oct-25: [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.QueenMary_EN-US3331250680_1920x1080.jpg&w=1000)Oct-24: [Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_1920x1080.jpg&w=1000)Oct-23: [Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_EN-US3294064537_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_1920x1080.jpg&w=1000)Sep-29: [The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_EN-US8966537355_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_1920x1080.jpg&w=1000)Sep-28: [Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_EN-US8831227247_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_1920x1080.jpg&w=1000)Sep-27: [Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_EN-US9278332978_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_1920x1080.jpg&w=1000)Sep-26: [Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_EN-US9248365602_UHD.jpg)<br><br>
