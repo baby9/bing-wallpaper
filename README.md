@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1920x1080.jpg&w=1000)Oct-30: [Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1920x1080.jpg&w=1000)Oct-29: [Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1920x1080.jpg&w=1000)Oct-28: [The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1920x1080.jpg&w=1000)Oct-27: [Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1920x1080.jpg&w=1000)Oct-03: [Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1920x1080.jpg&w=1000)Oct-02: [Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_1920x1080.jpg&w=1000)Oct-01: [Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YosemiteClark_EN-US8503376225_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_1920x1080.jpg&w=1000)Sep-30: [Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_EN-US8743417111_UHD.jpg)<br><br>
