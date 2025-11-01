@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1920x1080.jpg&w=1000)Nov-01: [Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1920x1080.jpg&w=1000)Oct-31: [Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1920x1080.jpg&w=1000)Oct-30: [Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1920x1080.jpg&w=1000)Oct-29: [Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&w=1000)Oct-04: [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1920x1080.jpg&w=1000)Oct-03: [Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_1920x1080.jpg&w=1000)Oct-02: [Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)](https://www.bing.com/th?id=OHR.OxbowBend_EN-US8471628790_UHD.jpg)<br><br>
