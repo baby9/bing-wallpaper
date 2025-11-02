@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1920x1080.jpg&w=1000)Nov-02: [Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1920x1080.jpg&w=1000)Nov-01: [Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1920x1080.jpg&w=1000)Oct-31: [Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1920x1080.jpg&w=1000)Oct-30: [Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&w=1000)Oct-06: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&w=1000)Oct-04: [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_1920x1080.jpg&w=1000)Oct-03: [Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg)<br><br>
