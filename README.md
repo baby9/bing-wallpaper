@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1920x1080.jpg&w=1000)Nov-03: [Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1920x1080.jpg&w=1000)Nov-02: [Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1920x1080.jpg&w=1000)Nov-01: [Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1920x1080.jpg&w=1000)Oct-31: [Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&w=1000)Oct-07: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&w=1000)Oct-06: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_1920x1080.jpg&w=1000)Oct-04: [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)<br><br>
