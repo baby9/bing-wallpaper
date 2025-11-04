@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1920x1080.jpg&w=1000)Nov-04: [Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1920x1080.jpg&w=1000)Nov-03: [Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1920x1080.jpg&w=1000)Nov-02: [Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_1920x1080.jpg&w=1000)Nov-01: [Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_EN-US6080228013_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&w=1000)Oct-08: [Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&w=1000)Oct-07: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_1920x1080.jpg&w=1000)Oct-06: [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_1920x1080.jpg&w=1000)Oct-05: [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)<br><br>
