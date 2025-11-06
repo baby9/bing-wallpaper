@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1920x1080.jpg&w=1000)Nov-06: [Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1920x1080.jpg&w=1000)Nov-05: [Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1920x1080.jpg&w=1000)Nov-04: [Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1920x1080.jpg&w=1000)Nov-03: [Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&w=1000)Oct-10: [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_1920x1080.jpg&w=1000)Oct-09: [The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_1920x1080.jpg&w=1000)Oct-08: [Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_1920x1080.jpg&w=1000)Oct-07: [Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_EN-US0136548884_UHD.jpg)<br><br>
