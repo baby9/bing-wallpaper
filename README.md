@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1920x1080.jpg&w=1000)Nov-09: [Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1920x1080.jpg&w=1000)Nov-08: [Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1920x1080.jpg&w=1000)Nov-07: [Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1920x1080.jpg&w=1000)Nov-06: [Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1920x1080.jpg&w=1000)Oct-13: [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&w=1000)Oct-12: [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_1920x1080.jpg&w=1000)Oct-11: [Wood duck hen (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_1920x1080.jpg&w=1000)Oct-10: [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)<br><br>
