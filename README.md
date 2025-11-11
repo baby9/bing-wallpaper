@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1920x1080.jpg&w=1000)Nov-11: [Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1920x1080.jpg&w=1000)Nov-10: [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1920x1080.jpg&w=1000)Nov-09: [Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1920x1080.jpg&w=1000)Nov-08: [Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&w=1000)Oct-15: [Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1920x1080.jpg&w=1000)Oct-14: [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_1920x1080.jpg&w=1000)Oct-13: [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://www.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_1920x1080.jpg&w=1000)Oct-12: [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)<br><br>
