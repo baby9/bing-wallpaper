@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1920x1080.jpg&w=1000)Nov-13: [Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1920x1080.jpg&w=1000)Nov-12: [Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1920x1080.jpg&w=1000)Nov-11: [Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1920x1080.jpg&w=1000)Nov-10: [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&w=1000)Oct-17: [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1920x1080.jpg&w=1000)Oct-16: [Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&w=1000)Oct-15: [Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_1920x1080.jpg&w=1000)Oct-14: [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg)<br><br>
