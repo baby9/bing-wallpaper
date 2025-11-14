@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1920x1080.jpg&w=1000)Nov-14: [Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1920x1080.jpg&w=1000)Nov-13: [Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1920x1080.jpg&w=1000)Nov-12: [Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1920x1080.jpg&w=1000)Nov-11: [Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1920x1080.jpg&w=1000)Oct-18: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&w=1000)Oct-17: [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_1920x1080.jpg&w=1000)Oct-16: [Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_EN-US0696336220_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_1920x1080.jpg&w=1000)Oct-15: [Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_EN-US0640413961_UHD.jpg)<br><br>
