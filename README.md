@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1920x1080.jpg&w=1000)Nov-16: [A traboule in Lyon, France (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1920x1080.jpg&w=1000)Nov-15: [Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1920x1080.jpg&w=1000)Nov-14: [Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1920x1080.jpg&w=1000)Nov-13: [Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1920x1080.jpg&w=1000)Oct-20: [A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1920x1080.jpg&w=1000)Oct-19: [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_1920x1080.jpg&w=1000)Oct-18: [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_1920x1080.jpg&w=1000)Oct-17: [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)<br><br>
