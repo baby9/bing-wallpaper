@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1920x1080.jpg&w=1000)Nov-18: [Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1920x1080.jpg&w=1000)Nov-17: [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1920x1080.jpg&w=1000)Nov-16: [A traboule in Lyon, France (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1920x1080.jpg&w=1000)Nov-15: [Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_1920x1080.jpg&w=1000)Oct-22: [Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-US3184562282_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_1920x1080.jpg&w=1000)Oct-21: [A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_1920x1080.jpg&w=1000)Oct-20: [A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_1920x1080.jpg&w=1000)Oct-19: [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)<br><br>
