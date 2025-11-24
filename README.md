@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1920x1080.jpg&w=1000)Nov-24: [Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1920x1080.jpg&w=1000)Nov-23: [Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)](https://www.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1920x1080.jpg&w=1000)Nov-22: [Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://www.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1920x1080.jpg&w=1000)Nov-21: [Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1920x1080.jpg&w=1000)Oct-28: [The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_1920x1080.jpg&w=1000)Oct-27: [Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_EN-US4057369898_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_1920x1080.jpg&w=1000)Oct-26: [Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_1920x1080.jpg&w=1000)Oct-25: [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg)<br><br>
