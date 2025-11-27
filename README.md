@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1920x1080.jpg&w=1000)Nov-27: [Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)](https://www.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1920x1080.jpg&w=1000)Nov-26: [Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1920x1080.jpg&w=1000)Nov-25: [The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1920x1080.jpg&w=1000)Nov-24: [Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_1920x1080.jpg&w=1000)Oct-31: [Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_EN-US5914201029_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_1920x1080.jpg&w=1000)Oct-30: [Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_EN-US4430814252_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_1920x1080.jpg&w=1000)Oct-29: [Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_EN-US4405104404_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_1920x1080.jpg&w=1000)Oct-28: [The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_EN-US4098225022_UHD.jpg)<br><br>
