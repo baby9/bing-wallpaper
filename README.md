@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1920x1080.jpg&w=1000)Dec-02: [Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1920x1080.jpg&w=1000)Dec-01: [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1920x1080.jpg&w=1000)Nov-30: [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1920x1080.jpg&w=1000)Nov-29: [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_1920x1080.jpg&w=1000)Nov-05: [Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_EN-US1753631441_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_1920x1080.jpg&w=1000)Nov-04: [Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-US6871236865_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_1920x1080.jpg&w=1000)Nov-03: [Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_EN-US6803524310_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_1920x1080.jpg&w=1000)Nov-02: [Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_EN-US6732403492_UHD.jpg)<br><br>
