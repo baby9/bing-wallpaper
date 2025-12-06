@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1920x1080.jpg&w=1000)Dec-06: [Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1920x1080.jpg&w=1000)Dec-05: [Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1920x1080.jpg&w=1000)Dec-04: [Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1920x1080.jpg&w=1000)Dec-03: [Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1920x1080.jpg&w=1000)Nov-09: [Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1920x1080.jpg&w=1000)Nov-08: [Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WillowBear_EN-US6995170630_1920x1080.jpg&w=1000)Nov-07: [Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_EN-US6995170630_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_1920x1080.jpg&w=1000)Nov-06: [Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_EN-US6955074347_UHD.jpg)<br><br>
