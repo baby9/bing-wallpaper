@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1920x1080.jpg&w=1000)Dec-08: [Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1920x1080.jpg&w=1000)Dec-07: [USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)](https://www.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1920x1080.jpg&w=1000)Dec-06: [Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1920x1080.jpg&w=1000)Dec-05: [Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_1920x1080.jpg&w=1000)Nov-11: [Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.MarineMemorial_EN-US6899836690_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_1920x1080.jpg&w=1000)Nov-10: [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-US6854295076_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_1920x1080.jpg&w=1000)Nov-09: [Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_EN-US7186308623_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_1920x1080.jpg&w=1000)Nov-08: [Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_EN-US7099626478_UHD.jpg)<br><br>
