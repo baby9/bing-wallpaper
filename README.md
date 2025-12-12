@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1920x1080.jpg&w=1000)Dec-12: [Spotted poinsettia (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1920x1080.jpg&w=1000)Dec-11: [Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1920x1080.jpg&w=1000)Dec-10: [Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1920x1080.jpg&w=1000)Dec-09: [Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1920x1080.jpg&w=1000)Nov-15: [Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1920x1080.jpg&w=1000)Nov-14: [Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_1920x1080.jpg&w=1000)Nov-13: [Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-US6966316373_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_1920x1080.jpg&w=1000)Nov-12: [Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_EN-US6932882124_UHD.jpg)<br><br>
