@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1920x1080.jpg&w=1000)Dec-14: [Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1920x1080.jpg&w=1000)Dec-13: [Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_1920x1080.jpg&w=1000)Dec-12: [Spotted poinsettia (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_1920x1080.jpg&w=1000)Dec-11: [Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1920x1080.jpg&w=1000)Nov-17: [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_1920x1080.jpg&w=1000)Nov-16: [A traboule in Lyon, France (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_1920x1080.jpg&w=1000)Nov-15: [Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_1920x1080.jpg&w=1000)Nov-14: [Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg)<br><br>
