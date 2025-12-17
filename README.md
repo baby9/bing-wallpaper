@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1920x1080.jpg&w=1000)Dec-17: [Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1920x1080.jpg&w=1000)Dec-16: [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1920x1080.jpg&w=1000)Dec-15: [Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1920x1080.jpg&w=1000)Dec-14: [Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1920x1080.jpg&w=1000)Nov-20: [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_1920x1080.jpg&w=1000)Nov-19: [Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_1920x1080.jpg&w=1000)Nov-18: [Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_1920x1080.jpg&w=1000)Nov-17: [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-US8964689271_UHD.jpg)<br><br>
