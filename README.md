@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1920x1080.jpg&w=1000)Dec-20: [Christmas star lanterns, Germany (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1920x1080.jpg&w=1000)Dec-19: [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1920x1080.jpg&w=1000)Dec-18: [Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1920x1080.jpg&w=1000)Dec-17: [Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1920x1080.jpg&w=1000)Nov-23: [Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)](https://www.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_1920x1080.jpg&w=1000)Nov-22: [Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://www.bing.com/th?id=OHR.LeshanBuddha_EN-US6412307232_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SealWaving_EN-US6277930581_1920x1080.jpg&w=1000)Nov-21: [Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_EN-US6277930581_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_1920x1080.jpg&w=1000)Nov-20: [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg)<br><br>
