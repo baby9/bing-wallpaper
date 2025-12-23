@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1920x1080.jpg&w=1000)Dec-23: [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1920x1080.jpg&w=1000)Dec-22: ['The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1920x1080.jpg&w=1000)Dec-21: [Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1920x1080.jpg&w=1000)Dec-20: [Christmas star lanterns, Germany (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1920x1080.jpg&w=1000)Nov-26: [Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_1920x1080.jpg&w=1000)Nov-25: [The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_EN-US6800145474_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_1920x1080.jpg&w=1000)Nov-24: [Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_EN-US6671653416_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_1920x1080.jpg&w=1000)Nov-23: [Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)](https://www.bing.com/th?id=OHR.MadgascarAmmonite_EN-US6525238032_UHD.jpg)<br><br>
