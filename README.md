@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1920x1080.jpg&w=1000)Dec-26: [Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1920x1080.jpg&w=1000)Dec-25: [Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1920x1080.jpg&w=1000)Dec-24: [Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1920x1080.jpg&w=1000)Dec-23: [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1920x1080.jpg&w=1000)Nov-29: [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_1920x1080.jpg&w=1000)Nov-28: [Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)](https://www.bing.com/th?id=OHR.ConchaBelt_EN-US6625864424_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_1920x1080.jpg&w=1000)Nov-27: [Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)](https://www.bing.com/th?id=OHR.TurkeyDetail_EN-US7401521602_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_1920x1080.jpg&w=1000)Nov-26: [Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_EN-US7076835672_UHD.jpg)<br><br>
