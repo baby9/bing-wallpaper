@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1920x1080.jpg&w=1000)Dec-29: [St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1920x1080.jpg&w=1000)Dec-28: [Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1920x1080.jpg&w=1000)Dec-27: [Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1920x1080.jpg&w=1000)Dec-26: [Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1920x1080.jpg&w=1000)Dec-02: [Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1920x1080.jpg&w=1000)Dec-01: [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1920x1080.jpg&w=1000)Nov-30: [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_1920x1080.jpg&w=1000)Nov-29: [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg)<br><br>
