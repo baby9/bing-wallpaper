@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1920x1080.jpg&w=1000)Dec-30: [Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1920x1080.jpg&w=1000)Dec-29: [St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1920x1080.jpg&w=1000)Dec-28: [Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1920x1080.jpg&w=1000)Dec-27: [Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1920x1080.jpg&w=1000)Dec-03: [Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1920x1080.jpg&w=1000)Dec-02: [Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_1920x1080.jpg&w=1000)Dec-01: [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_1920x1080.jpg&w=1000)Nov-30: [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg)<br><br>
