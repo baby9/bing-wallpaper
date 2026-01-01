@@ -1,0 +1,1 @@
+![](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1920x1080.jpg&w=1000)Jan-01: [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg)<br><br>

@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1920x1080.jpg&w=1000)Jan-01: [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1920x1080.jpg&w=1000)Dec-31: [New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)](https://www.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1920x1080.jpg&w=1000)Dec-30: [Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1920x1080.jpg&w=1000)Dec-29: [St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1920x1080.jpg&w=1000)Dec-05: [Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1920x1080.jpg&w=1000)Dec-04: [Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_1920x1080.jpg&w=1000)Dec-03: [Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_EN-US6752028797_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_1920x1080.jpg&w=1000)Dec-02: [Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_EN-US6664756735_UHD.jpg)<br><br>
