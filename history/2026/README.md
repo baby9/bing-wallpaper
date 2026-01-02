@@ -1,1 +1,2 @@
 ![](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1920x1080.jpg&w=1000)Jan-01: [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1920x1080.jpg&w=1000)Jan-02: [Aerial view of Venice, Italy (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg)<br><br>
