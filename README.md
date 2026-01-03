@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_1920x1080.jpg&w=1000)Jan-03: [Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1920x1080.jpg&w=1000)Jan-02: [Aerial view of Venice, Italy (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1920x1080.jpg&w=1000)Jan-01: [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_1920x1080.jpg&w=1000)Dec-31: [New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)](https://www.bing.com/th?id=OHR.GermanyNewYear_EN-US6344260060_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1920x1080.jpg&w=1000)Dec-07: [USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)](https://www.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_1920x1080.jpg&w=1000)Dec-06: [Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_EN-US5606230133_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_1920x1080.jpg&w=1000)Dec-05: [Maya site of Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_EN-US5517813382_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_1920x1080.jpg&w=1000)Dec-04: [Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_EN-US5447540393_UHD.jpg)<br><br>
