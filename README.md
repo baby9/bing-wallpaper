@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1920x1080.jpg&w=1000)Jan-06: [Nuuk, Greenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1920x1080.jpg&w=1000)Jan-05: [A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1920x1080.jpg&w=1000)Jan-04: [Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_1920x1080.jpg&w=1000)Jan-03: [Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_1920x1080.jpg&w=1000)Dec-10: [Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-US6045311068_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_1920x1080.jpg&w=1000)Dec-09: [Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_EN-US5971354659_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_1920x1080.jpg&w=1000)Dec-08: [Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_EN-US5867954466_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_1920x1080.jpg&w=1000)Dec-07: [USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)](https://www.bing.com/th?id=OHR.PearlHarborDay_EN-US5774515492_UHD.jpg)<br><br>
