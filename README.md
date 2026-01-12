@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1920x1080.jpg&w=1000)Jan-12: [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1920x1080.jpg&w=1000)Jan-11: [Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_1920x1080.jpg&w=1000)Jan-10: [The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_1920x1080.jpg&w=1000)Jan-09: [Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)](https://www.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1920x1080.jpg&w=1000)Dec-16: [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1920x1080.jpg&w=1000)Dec-15: [Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_1920x1080.jpg&w=1000)Dec-14: [Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_1920x1080.jpg&w=1000)Dec-13: [Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg)<br><br>
