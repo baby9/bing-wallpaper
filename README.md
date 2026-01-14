@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1920x1080.jpg&w=1000)Jan-14: [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1920x1080.jpg&w=1000)Jan-13: [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1920x1080.jpg&w=1000)Jan-12: [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1920x1080.jpg&w=1000)Jan-11: [Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1920x1080.jpg&w=1000)Dec-18: [Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1920x1080.jpg&w=1000)Dec-17: [Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1920x1080.jpg&w=1000)Dec-16: [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_1920x1080.jpg&w=1000)Dec-15: [Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg)<br><br>

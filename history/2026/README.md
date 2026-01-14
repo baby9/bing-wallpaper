@@ -11,3 +11,4 @@
 ![](https://www.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_1920x1080.jpg&w=1000)Jan-11: [Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1920x1080.jpg&w=1000)Jan-12: [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1920x1080.jpg&w=1000)Jan-13: [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1920x1080.jpg&w=1000)Jan-14: [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)<br><br>
