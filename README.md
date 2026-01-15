@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1920x1080.jpg&w=1000)Jan-15: [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1920x1080.jpg&w=1000)Jan-14: [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1920x1080.jpg&w=1000)Jan-13: [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1920x1080.jpg&w=1000)Jan-12: [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1920x1080.jpg&w=1000)Dec-19: [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1920x1080.jpg&w=1000)Dec-18: [Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_1920x1080.jpg&w=1000)Dec-17: [Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_1920x1080.jpg&w=1000)Dec-16: [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg)<br><br>
