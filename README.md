@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1920x1080.jpg&w=1000)Jan-17: [Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1920x1080.jpg&w=1000)Jan-16: [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1920x1080.jpg&w=1000)Jan-15: [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1920x1080.jpg&w=1000)Jan-14: [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1920x1080.jpg&w=1000)Dec-21: [Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1920x1080.jpg&w=1000)Dec-20: [Christmas star lanterns, Germany (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_1920x1080.jpg&w=1000)Dec-19: [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_1920x1080.jpg&w=1000)Dec-18: [Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_EN-US5270905846_UHD.jpg)<br><br>
