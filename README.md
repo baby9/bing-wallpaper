@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1920x1080.jpg&w=1000)Jan-19: [Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1920x1080.jpg&w=1000)Jan-18: [White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_1920x1080.jpg&w=1000)Jan-17: [Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1920x1080.jpg&w=1000)Jan-16: [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1920x1080.jpg&w=1000)Dec-23: [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1920x1080.jpg&w=1000)Dec-22: ['The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_1920x1080.jpg&w=1000)Dec-21: [Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-US5470044971_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_1920x1080.jpg&w=1000)Dec-20: [Christmas star lanterns, Germany (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg)<br><br>
