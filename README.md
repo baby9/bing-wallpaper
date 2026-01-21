@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1920x1080.jpg&w=1000)Jan-20: [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1920x1080.jpg&w=1000)Jan-19: [Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_1920x1080.jpg&w=1000)Jan-18: [White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1920x1080.jpg&w=1000)Dec-25: [Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_1920x1080.jpg&w=1000)Dec-24: [Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_EN-US5704228113_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_1920x1080.jpg&w=1000)Dec-23: [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_1920x1080.jpg&w=1000)Dec-22: ['The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg)<br><br>
