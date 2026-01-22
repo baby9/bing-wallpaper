@@ -19,3 +19,4 @@
 ![](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1920x1080.jpg&w=1000)Jan-19: [Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1920x1080.jpg&w=1000)Jan-20: [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1920x1080.jpg&w=1000)Jan-22: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg)<br><br>
