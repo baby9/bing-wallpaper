@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1920x1080.jpg&w=1000)Jan-24: [Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1920x1080.jpg&w=1000)Jan-23: [Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1920x1080.jpg&w=1000)Jan-22: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1920x1080.jpg&w=1000)Dec-28: [Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1920x1080.jpg&w=1000)Dec-27: [Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_1920x1080.jpg&w=1000)Dec-26: [Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_EN-US5663179833_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_1920x1080.jpg&w=1000)Dec-25: [Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_EN-US5819361091_UHD.jpg)<br><br>
