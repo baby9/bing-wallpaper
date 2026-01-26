@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_1920x1080.jpg&w=1000)Jan-26: [Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_EN-US9407713688_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_1920x1080.jpg&w=1000)Jan-25: [Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)](https://www.bing.com/th?id=OHR.BurnsPark_EN-US9363066918_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1920x1080.jpg&w=1000)Jan-24: [Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1920x1080.jpg&w=1000)Jan-23: [Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_1920x1080.jpg&w=1000)Dec-30: [Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_EN-US6228421340_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_1920x1080.jpg&w=1000)Dec-29: [St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_EN-US6168768263_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_1920x1080.jpg&w=1000)Dec-28: [Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_EN-US6014028083_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_1920x1080.jpg&w=1000)Dec-27: [Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_EN-US5952266924_UHD.jpg)<br><br>
