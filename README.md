@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1920x1080.jpg&w=1000)Jan-31: [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1920x1080.jpg&w=1000)Jan-30: [St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1920x1080.jpg&w=1000)Jan-29: [The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1920x1080.jpg&w=1000)Jan-28: [Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)](https://www.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1920x1080.jpg&w=1000)Jan-04: [Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_1920x1080.jpg&w=1000)Jan-03: [Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeniceView_EN-US3244163136_1920x1080.jpg&w=1000)Jan-02: [Aerial view of Venice, Italy (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_EN-US3244163136_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_1920x1080.jpg&w=1000)Jan-01: [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-US6422915878_UHD.jpg)<br><br>
