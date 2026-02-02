@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1920x1080.jpg&w=1000)Feb-02: [Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1920x1080.jpg&w=1000)Feb-01: [US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)](https://www.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1920x1080.jpg&w=1000)Jan-31: [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1920x1080.jpg&w=1000)Jan-30: [St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1920x1080.jpg&w=1000)Jan-06: [Nuuk, Greenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1920x1080.jpg&w=1000)Jan-05: [A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_1920x1080.jpg&w=1000)Jan-04: [Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_1920x1080.jpg&w=1000)Jan-03: [Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_EN-US6594933852_UHD.jpg)<br><br>
