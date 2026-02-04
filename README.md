@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_1920x1080.jpg&w=1000)Feb-04: [Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)](https://www.bing.com/th?id=OHR.ParksGlass_EN-US0280057691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_1920x1080.jpg&w=1000)Feb-03: [Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1920x1080.jpg&w=1000)Feb-02: [Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1920x1080.jpg&w=1000)Feb-01: [US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)](https://www.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_1920x1080.jpg&w=1000)Jan-08: [Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_EN-US6998438769_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_1920x1080.jpg&w=1000)Jan-07: [Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_EN-US2422589534_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_1920x1080.jpg&w=1000)Jan-06: [Nuuk, Greenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_1920x1080.jpg&w=1000)Jan-05: [A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg)<br><br>
