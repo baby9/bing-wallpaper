@@ -36,3 +36,4 @@
 ![](https://www.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1920x1080.jpg&w=1000)Feb-05: [Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1920x1080.jpg&w=1000)Feb-06: [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1920x1080.jpg&w=1000)Feb-07: [Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1920x1080.jpg&w=1000)Feb-08: [Corfu at night, Greece (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg)<br><br>
