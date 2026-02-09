@@ -37,3 +37,4 @@
 ![](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1920x1080.jpg&w=1000)Feb-06: [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1920x1080.jpg&w=1000)Feb-07: [Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1920x1080.jpg&w=1000)Feb-08: [Corfu at night, Greece (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1920x1080.jpg&w=1000)Feb-09: [Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg)<br><br>
