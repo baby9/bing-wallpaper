@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1920x1080.jpg&w=1000)Feb-11: [Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1920x1080.jpg&w=1000)Feb-10: [Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1920x1080.jpg&w=1000)Feb-09: [Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1920x1080.jpg&w=1000)Feb-08: [Corfu at night, Greece (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1920x1080.jpg&w=1000)Jan-15: [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1920x1080.jpg&w=1000)Jan-14: [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1920x1080.jpg&w=1000)Jan-13: [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_1920x1080.jpg&w=1000)Jan-12: [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg)<br><br>
