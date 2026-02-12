@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1920x1080.jpg&w=1000)Feb-12: [Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_1920x1080.jpg&w=1000)Feb-11: [Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_EN-US4770719796_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_1920x1080.jpg&w=1000)Feb-10: [Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_EN-US4713963434_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1920x1080.jpg&w=1000)Feb-09: [Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_1920x1080.jpg&w=1000)Jan-16: [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_1920x1080.jpg&w=1000)Jan-15: [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_1920x1080.jpg&w=1000)Jan-14: [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_1920x1080.jpg&w=1000)Jan-13: [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)<br><br>
