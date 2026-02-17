@@ -45,3 +45,4 @@
 ![](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_1920x1080.jpg&w=1000)Feb-14: [Bleeding hearts (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1920x1080.jpg&w=1000)Feb-15: [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1920x1080.jpg&w=1000)Feb-16: [Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1920x1080.jpg&w=1000)Feb-17: [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)<br><br>
