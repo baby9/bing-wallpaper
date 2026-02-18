@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1920x1080.jpg&w=1000)Feb-18: [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1920x1080.jpg&w=1000)Feb-17: [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1920x1080.jpg&w=1000)Feb-16: [Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1920x1080.jpg&w=1000)Feb-15: [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1920x1080.jpg&w=1000)Jan-22: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_1920x1080.jpg&w=1000)Jan-20: [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_1920x1080.jpg&w=1000)Jan-19: [Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)](https://www.bing.com/th?id=OHR.MLKSunrise_EN-US0641684404_UHD.jpg)<br><br>
