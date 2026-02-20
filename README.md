@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1920x1080.jpg&w=1000)Feb-20: [Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1920x1080.jpg&w=1000)Feb-19: [The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1920x1080.jpg&w=1000)Feb-18: [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1920x1080.jpg&w=1000)Feb-17: [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_1920x1080.jpg&w=1000)Jan-24: [Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-US9318337691_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_1920x1080.jpg&w=1000)Jan-23: [Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_1920x1080.jpg&w=1000)Jan-22: [Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_EN-US0856094511_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_1920x1080.jpg&w=1000)Jan-21: [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)<br><br>
