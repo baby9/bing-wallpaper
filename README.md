@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1920x1080.jpg&w=1000)Feb-27: [Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1920x1080.jpg&w=1000)Feb-26: [Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1920x1080.jpg&w=1000)Feb-25: [Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1920x1080.jpg&w=1000)Feb-24: [Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1920x1080.jpg&w=1000)Jan-31: [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1920x1080.jpg&w=1000)Jan-30: [St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_1920x1080.jpg&w=1000)Jan-29: [The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_1920x1080.jpg&w=1000)Jan-28: [Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)](https://www.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg)<br><br>
