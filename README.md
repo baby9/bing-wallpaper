@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_1920x1080.jpg&w=1000)Mar-01: [Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)](https://www.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_1920x1080.jpg&w=1000)Feb-28: [Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_1920x1080.jpg&w=1000)Feb-27: [Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1920x1080.jpg&w=1000)Feb-26: [Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_1920x1080.jpg&w=1000)Feb-02: [Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_1920x1080.jpg&w=1000)Feb-01: [US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)](https://www.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_1920x1080.jpg&w=1000)Jan-31: [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-US0091145236_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_1920x1080.jpg&w=1000)Jan-30: [St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-US0036057583_UHD.jpg)<br><br>
