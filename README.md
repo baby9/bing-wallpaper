@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1920x1080.jpg&w=1000)Mar-07: [Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1920x1080.jpg&w=1000)Mar-06: [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1920x1080.jpg&w=1000)Mar-05: [Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1920x1080.jpg&w=1000)Mar-04: [Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1920x1080.jpg&w=1000)Feb-08: [Corfu at night, Greece (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1920x1080.jpg&w=1000)Feb-07: [Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1920x1080.jpg&w=1000)Feb-06: [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_1920x1080.jpg&w=1000)Feb-05: [Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_EN-US0310458987_UHD.jpg)<br><br>
