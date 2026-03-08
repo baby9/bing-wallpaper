@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.UlmClock_EN-US6692804943_1920x1080.jpg&w=1000)Mar-08: [Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_EN-US6692804943_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_1920x1080.jpg&w=1000)Mar-07: [Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-US8849518575_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1920x1080.jpg&w=1000)Mar-06: [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1920x1080.jpg&w=1000)Mar-05: [Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_1920x1080.jpg&w=1000)Feb-09: [Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_EN-US4669057608_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_1920x1080.jpg&w=1000)Feb-08: [Corfu at night, Greece (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_EN-US4606019833_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_1920x1080.jpg&w=1000)Feb-07: [Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_EN-US1639129259_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_1920x1080.jpg&w=1000)Feb-06: [Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_EN-US1580552183_UHD.jpg)<br><br>
