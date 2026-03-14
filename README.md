@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1920x1080.jpg&w=1000)Mar-14: [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1920x1080.jpg&w=1000)Mar-13: [Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1920x1080.jpg&w=1000)Mar-12: [Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PeachBloom_EN-US6957157989_1920x1080.jpg&w=1000)Mar-11: [Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_EN-US6957157989_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1920x1080.jpg&w=1000)Feb-15: [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_1920x1080.jpg&w=1000)Feb-14: [Bleeding hearts (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_1920x1080.jpg&w=1000)Feb-13: [Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_EN-US6136231298_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_1920x1080.jpg&w=1000)Feb-12: [Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_EN-US4839738451_UHD.jpg)<br><br>
