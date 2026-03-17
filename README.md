@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1920x1080.jpg&w=1000)Mar-17: [Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1920x1080.jpg&w=1000)Mar-16: [Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)](https://www.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1920x1080.jpg&w=1000)Mar-15: [Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1920x1080.jpg&w=1000)Mar-14: [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1920x1080.jpg&w=1000)Feb-18: [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1920x1080.jpg&w=1000)Feb-17: [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_1920x1080.jpg&w=1000)Feb-16: [Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_1920x1080.jpg&w=1000)Feb-15: [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)<br><br>
