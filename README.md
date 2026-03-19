@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1920x1080.jpg&w=1000)Mar-19: [Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_1920x1080.jpg&w=1000)Mar-18: [Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_EN-US7604107803_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1920x1080.jpg&w=1000)Mar-17: [Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1920x1080.jpg&w=1000)Mar-16: [Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)](https://www.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1920x1080.jpg&w=1000)Feb-20: [Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_1920x1080.jpg&w=1000)Feb-19: [The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_1920x1080.jpg&w=1000)Feb-18: [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_1920x1080.jpg&w=1000)Feb-17: [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)<br><br>
