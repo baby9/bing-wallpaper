@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_1920x1080.jpg&w=1000)Mar-22: [Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_1920x1080.jpg&w=1000)Mar-21: [Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)](https://www.bing.com/th?id=OHR.LeteaForest_EN-US5404369914_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_1920x1080.jpg&w=1000)Mar-20: [Snowdrops in spring (© klagyivik/Getty Images)](https://www.bing.com/th?id=OHR.SpringSnowdrops_EN-US5032204696_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_1920x1080.jpg&w=1000)Mar-19: [Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_EN-US7660451296_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1920x1080.jpg&w=1000)Feb-23: [Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_1920x1080.jpg&w=1000)Feb-22: [The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TetonFox_EN-US2616700325_1920x1080.jpg&w=1000)Feb-21: [Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_EN-US2616700325_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_1920x1080.jpg&w=1000)Feb-20: [Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)<br><br>
