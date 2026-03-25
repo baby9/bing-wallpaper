@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1920x1080.jpg&w=1000)Mar-25: [Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_1920x1080.jpg&w=1000)Mar-24: [Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_EN-US5963967452_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_1920x1080.jpg&w=1000)Mar-23: [Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_EN-US5792303901_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_1920x1080.jpg&w=1000)Mar-22: [Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_EN-US5685685365_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_1920x1080.jpg&w=1000)Feb-26: [Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_1920x1080.jpg&w=1000)Feb-25: [Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_1920x1080.jpg&w=1000)Feb-24: [Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_1920x1080.jpg&w=1000)Feb-23: [Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg)<br><br>
