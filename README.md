@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_1920x1080.jpg&w=1000)Apr-02: [Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_1920x1080.jpg&w=1000)Apr-01: [Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_EN-US6527297660_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_1920x1080.jpg&w=1000)Mar-31: [Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://www.bing.com/th?id=OHR.ParadiseCave_EN-US6470755729_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_1920x1080.jpg&w=1000)Mar-30: [Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.IndiaCranes_EN-US6414900321_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_1920x1080.jpg&w=1000)Mar-06: [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_EN-US6550970747_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_1920x1080.jpg&w=1000)Mar-05: [Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-US3224835148_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_1920x1080.jpg&w=1000)Mar-04: [Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_EN-US3179110237_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_1920x1080.jpg&w=1000)Mar-03: [African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_UHD.jpg)<br><br>
