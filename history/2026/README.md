@@ -95,3 +95,4 @@
 ![](https://www.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1920x1080.jpg&w=1000)Apr-05: [Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1920x1080.jpg&w=1000)Apr-06: [Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1920x1080.jpg&w=1000)Apr-07: [Beaver, Germany (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1920x1080.jpg&w=1000)Apr-08: [Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg)<br><br>

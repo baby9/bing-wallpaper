@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1920x1080.jpg&w=1000)Apr-08: [Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1920x1080.jpg&w=1000)Apr-07: [Beaver, Germany (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_1920x1080.jpg&w=1000)Apr-06: [Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_1920x1080.jpg&w=1000)Apr-05: [Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1920x1080.jpg&w=1000)Mar-12: [Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PeachBloom_EN-US6957157989_1920x1080.jpg&w=1000)Mar-11: [Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_EN-US6957157989_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_1920x1080.jpg&w=1000)Mar-10: [Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.SpringIceland_EN-US6846318257_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_1920x1080.jpg&w=1000)Mar-09: [Gray seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_EN-US6764325041_UHD.jpg)<br><br>
