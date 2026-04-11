@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_1920x1080.jpg&w=1000)Apr-11: [Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1920x1080.jpg&w=1000)Apr-10: [Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1920x1080.jpg&w=1000)Apr-09: [Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1920x1080.jpg&w=1000)Apr-08: [Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1920x1080.jpg&w=1000)Mar-15: [Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1920x1080.jpg&w=1000)Mar-14: [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_1920x1080.jpg&w=1000)Mar-13: [Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_EN-US7120114878_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_1920x1080.jpg&w=1000)Mar-12: [Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_EN-US7059069378_UHD.jpg)<br><br>
