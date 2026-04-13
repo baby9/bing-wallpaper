@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_1920x1080.jpg&w=1000)Apr-13: [Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)](https://www.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_1920x1080.jpg&w=1000)Apr-12: [City lights streak below, taken from the International Space Station (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_1920x1080.jpg&w=1000)Apr-11: [Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1920x1080.jpg&w=1000)Apr-10: [Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_1920x1080.jpg&w=1000)Mar-17: [Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_EN-US7529893132_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PandaForest_EN-US7436757535_1920x1080.jpg&w=1000)Mar-16: [Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)](https://www.bing.com/th?id=OHR.PandaForest_EN-US7436757535_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_1920x1080.jpg&w=1000)Mar-15: [Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_EN-US7242831009_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_1920x1080.jpg&w=1000)Mar-14: [Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_EN-US7192709883_UHD.jpg)<br><br>
