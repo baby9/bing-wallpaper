@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SlashPine_EN-US2059787604_1920x1080.jpg&w=1000)Apr-24: [Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_1920x1080.jpg&w=1000)Apr-23: [Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1920x1080.jpg&w=1000)Apr-22: [Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1920x1080.jpg&w=1000)Apr-21: [European hedgehog, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_1920x1080.jpg&w=1000)Mar-28: [African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_1920x1080.jpg&w=1000)Mar-27: [Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)](https://www.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_1920x1080.jpg&w=1000)Mar-26: [Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_1920x1080.jpg&w=1000)Mar-25: [Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_EN-US1203685327_UHD.jpg)<br><br>
