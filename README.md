@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_1920x1080.jpg&w=1000)May-07: [Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1920x1080.jpg&w=1000)May-06: [Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1920x1080.jpg&w=1000)May-05: [Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)](https://www.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_1920x1080.jpg&w=1000)May-04: [Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)](https://www.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_1920x1080.jpg&w=1000)Apr-10: [Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_1920x1080.jpg&w=1000)Apr-09: [Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_1920x1080.jpg&w=1000)Apr-08: [Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_1920x1080.jpg&w=1000)Apr-07: [Beaver, Germany (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg)<br><br>
