@@ -125,3 +125,4 @@
 ![](https://www.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_1920x1080.jpg&w=1000)May-05: [Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)](https://www.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1920x1080.jpg&w=1000)May-06: [Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_1920x1080.jpg&w=1000)May-07: [Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_1920x1080.jpg&w=1000)May-08: [Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg)<br><br>
