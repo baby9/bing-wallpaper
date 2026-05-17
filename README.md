@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1920x1080.jpg&w=1000)May-17: [Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1920x1080.jpg&w=1000)May-16: [Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1920x1080.jpg&w=1000)May-15: [A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_1920x1080.jpg&w=1000)May-14: [Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_EN-US1208308627_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1920x1080.jpg&w=1000)Apr-20: [Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1920x1080.jpg&w=1000)Apr-19: [Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://www.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_1920x1080.jpg&w=1000)Apr-18: [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_1920x1080.jpg&w=1000)Apr-17: [Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg)<br><br>
