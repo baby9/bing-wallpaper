@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1920x1080.jpg&w=1000)May-19: [Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1920x1080.jpg&w=1000)May-18: [Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1920x1080.jpg&w=1000)May-17: [Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1920x1080.jpg&w=1000)May-16: [Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_1920x1080.jpg&w=1000)Apr-22: [Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_1920x1080.jpg&w=1000)Apr-21: [European hedgehog, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_1920x1080.jpg&w=1000)Apr-20: [Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_1920x1080.jpg&w=1000)Apr-19: [Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://www.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg)<br><br>
