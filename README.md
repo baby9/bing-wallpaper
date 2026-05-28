@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1920x1080.jpg&w=1000)May-28: [Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1920x1080.jpg&w=1000)May-27: [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1920x1080.jpg&w=1000)May-26: [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1920x1080.jpg&w=1000)May-25: [Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KoiPond_EN-US0207799352_1920x1080.jpg&w=1000)May-01: [Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_1920x1080.jpg&w=1000)Apr-30: [Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_1920x1080.jpg&w=1000)Apr-29: [Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_1920x1080.jpg&w=1000)Apr-28: [Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg)<br><br>
