@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1920x1080.jpg&w=1000)Jun-05: [View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1920x1080.jpg&w=1000)Jun-04: [Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1920x1080.jpg&w=1000)Jun-03: [Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1920x1080.jpg&w=1000)Jun-02: [Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_1920x1080.jpg&w=1000)May-09: [Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)](https://www.bing.com/th?id=OHR.SkradinskiBuk_EN-US0750882952_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_1920x1080.jpg&w=1000)May-08: [Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_EN-US0705945312_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_1920x1080.jpg&w=1000)May-07: [Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_EN-US0655690866_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_1920x1080.jpg&w=1000)May-06: [Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_EN-US0576020979_UHD.jpg)<br><br>
