@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1920x1080.jpg&w=1000)Jun-14: [US flags surrounding the Washington Monument, Washington, DC (© Orhan Cam/Shutterstock)](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1920x1080.jpg&w=1000)Jun-13: [Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1920x1080.jpg&w=1000)Jun-12: [European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_1920x1080.jpg&w=1000)Jun-11: [Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_1920x1080.jpg&w=1000)May-18: [Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_EN-US0527592013_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_1920x1080.jpg&w=1000)May-17: [Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_EN-US0482920183_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_1920x1080.jpg&w=1000)May-16: [Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_EN-US0425629050_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_1920x1080.jpg&w=1000)May-15: [A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_EN-US0380100553_UHD.jpg)<br><br>
