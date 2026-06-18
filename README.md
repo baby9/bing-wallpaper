@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1920x1080.jpg&w=1000)Jun-18: [Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1920x1080.jpg&w=1000)Jun-17: [Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_1920x1080.jpg&w=1000)Jun-16: [Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1920x1080.jpg&w=1000)Jun-15: [Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_1920x1080.jpg&w=1000)May-22: [Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_EN-US6299031230_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_1920x1080.jpg&w=1000)May-21: [Tea terraces in Sichuan Province, China (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_EN-US0676754504_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_1920x1080.jpg&w=1000)May-20: [Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_EN-US0634100541_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_1920x1080.jpg&w=1000)May-19: [Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_EN-US0598364035_UHD.jpg)<br><br>
