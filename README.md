@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1920x1080.jpg&w=1000)Jun-23: [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1920x1080.jpg&w=1000)Jun-22: [Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_1920x1080.jpg&w=1000)Jun-21: [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1920x1080.jpg&w=1000)Jun-20: [Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1920x1080.jpg&w=1000)May-27: [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1920x1080.jpg&w=1000)May-26: [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1920x1080.jpg&w=1000)May-25: [Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_1920x1080.jpg&w=1000)May-24: [Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_EN-US0828472809_UHD.jpg)<br><br>
