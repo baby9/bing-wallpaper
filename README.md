@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1920x1080.jpg&w=1000)Jun-24: [Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1920x1080.jpg&w=1000)Jun-23: [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1920x1080.jpg&w=1000)Jun-22: [Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_1920x1080.jpg&w=1000)Jun-21: [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1920x1080.jpg&w=1000)May-28: [Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_1920x1080.jpg&w=1000)May-27: [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_1920x1080.jpg&w=1000)May-26: [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_1920x1080.jpg&w=1000)May-25: [Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://www.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg)<br><br>
