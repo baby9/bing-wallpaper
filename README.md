@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_1920x1080.jpg&w=1000)Jun-27: [Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_1920x1080.jpg&w=1000)Jun-26: [The River Thames, London, England (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_1920x1080.jpg&w=1000)Jun-25: [Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1920x1080.jpg&w=1000)Jun-24: [Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1920x1080.jpg&w=1000)May-31: [Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_1920x1080.jpg&w=1000)May-30: [Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_EN-US8240577582_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_1920x1080.jpg&w=1000)May-29: [Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_EN-US0552794971_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_1920x1080.jpg&w=1000)May-28: [Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg)<br><br>
