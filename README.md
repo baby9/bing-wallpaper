@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1920x1080.jpg&w=1000)Jun-30: [Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1920x1080.jpg&w=1000)Jun-29: [Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1920x1080.jpg&w=1000)Jun-28: [Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_1920x1080.jpg&w=1000)Jun-27: [Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1920x1080.jpg&w=1000)Jun-03: [Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Qinghai_EN-US8807254633_1920x1080.jpg&w=1000)Jun-02: [Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_EN-US8807254633_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_1920x1080.jpg&w=1000)Jun-01: [Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.RockefellerPride_EN-US1087499810_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_1920x1080.jpg&w=1000)May-31: [Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_EN-US8572465847_UHD.jpg)<br><br>
