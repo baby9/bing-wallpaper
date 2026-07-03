@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1920x1080.jpg&w=1000)Jul-03: [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1920x1080.jpg&w=1000)Jul-02: [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1920x1080.jpg&w=1000)Jul-01: [Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1920x1080.jpg&w=1000)Jun-30: [Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1920x1080.jpg&w=1000)Jun-06: [Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1920x1080.jpg&w=1000)Jun-05: [View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_1920x1080.jpg&w=1000)Jun-04: [Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_EN-US9350488148_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_1920x1080.jpg&w=1000)Jun-03: [Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_EN-US9044910730_UHD.jpg)<br><br>
