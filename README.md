@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1920x1080.jpg&w=1000)Jul-05: [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1920x1080.jpg&w=1000)Jul-04: [Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1920x1080.jpg&w=1000)Jul-03: [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1920x1080.jpg&w=1000)Jul-02: [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1920x1080.jpg&w=1000)Jun-08: [Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_1920x1080.jpg&w=1000)Jun-07: [Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)](https://www.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_1920x1080.jpg&w=1000)Jun-06: [Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_EN-US0663065299_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WedLapland_EN-US9813120088_1920x1080.jpg&w=1000)Jun-05: [View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_EN-US9813120088_UHD.jpg)<br><br>
