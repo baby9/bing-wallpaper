@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1920x1080.jpg&w=1000)Jul-07: [Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1920x1080.jpg&w=1000)Jul-06: [Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1920x1080.jpg&w=1000)Jul-05: [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1920x1080.jpg&w=1000)Jul-04: [Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_1920x1080.jpg&w=1000)Jun-10: [Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_EN-US2080493040_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_1920x1080.jpg&w=1000)Jun-09: [Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_EN-US1571456265_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Cyanea_EN-US1146473249_1920x1080.jpg&w=1000)Jun-08: [Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_EN-US1146473249_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_1920x1080.jpg&w=1000)Jun-07: [Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)](https://www.bing.com/th?id=OHR.GardenAtlanta_EN-US2319128074_UHD.jpg)<br><br>
