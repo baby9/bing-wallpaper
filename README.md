@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1920x1080.jpg&w=1000)Jul-11: [Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1920x1080.jpg&w=1000)Jul-10: [Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_1920x1080.jpg&w=1000)Jul-09: [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1920x1080.jpg&w=1000)Jul-08: [Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1920x1080.jpg&w=1000)Jun-14: [US flags surrounding the Washington Monument, Washington, DC (© Orhan Cam/Shutterstock)](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BadSunset_EN-US5981956630_1920x1080.jpg&w=1000)Jun-13: [Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_EN-US5981956630_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_1920x1080.jpg&w=1000)Jun-12: [European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_EN-US5920719155_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_1920x1080.jpg&w=1000)Jun-11: [Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_EN-US1055673545_UHD.jpg)<br><br>
