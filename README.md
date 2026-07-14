@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1920x1080.jpg&w=1000)Jul-14: [Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1920x1080.jpg&w=1000)Jul-13: [Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1920x1080.jpg&w=1000)Jul-12: [Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1920x1080.jpg&w=1000)Jul-11: [Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1920x1080.jpg&w=1000)Jun-17: [Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_1920x1080.jpg&w=1000)Jun-16: [Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1920x1080.jpg&w=1000)Jun-15: [Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_1920x1080.jpg&w=1000)Jun-14: [US flags surrounding the Washington Monument, Washington, DC (© Orhan Cam/Shutterstock)](https://www.bing.com/th?id=OHR.FlagsMonument_EN-US6034154869_UHD.jpg)<br><br>
