@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1920x1080.jpg&w=1000)Jul-15: [Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1920x1080.jpg&w=1000)Jul-14: [Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1920x1080.jpg&w=1000)Jul-13: [Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1920x1080.jpg&w=1000)Jul-12: [Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1920x1080.jpg&w=1000)Jun-18: [Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_1920x1080.jpg&w=1000)Jun-17: [Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_1920x1080.jpg&w=1000)Jun-16: [Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_1920x1080.jpg&w=1000)Jun-15: [Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg)<br><br>
