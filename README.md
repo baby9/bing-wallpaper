@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1920x1080.jpg&w=1000)Jul-18: [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&w=1000)Jul-17: [Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&w=1000)Jul-16: [Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1920x1080.jpg&w=1000)Jul-15: [Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_1920x1080.jpg&w=1000)Jun-21: [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1920x1080.jpg&w=1000)Jun-20: [Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1920x1080.jpg&w=1000)Jun-19: [National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)](https://www.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_1920x1080.jpg&w=1000)Jun-18: [Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_EN-US6250260694_UHD.jpg)<br><br>
