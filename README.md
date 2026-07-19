@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1920x1080.jpg&w=1000)Jul-19: [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1920x1080.jpg&w=1000)Jul-18: [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&w=1000)Jul-17: [Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&w=1000)Jul-16: [Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_1920x1080.jpg&w=1000)Jun-22: [Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_1920x1080.jpg&w=1000)Jun-21: [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_1920x1080.jpg&w=1000)Jun-20: [Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-US6345786269_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_1920x1080.jpg&w=1000)Jun-19: [National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)](https://www.bing.com/th?id=OHR.JuneteenthNMAAHC_EN-US6306942628_UHD.jpg)<br><br>
