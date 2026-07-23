@@ -201,3 +201,4 @@
 ![](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_1920x1080.jpg&w=1000)Jul-20: [Moon and Earth captured by the Artemis II crew (© NASA)](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1920x1080.jpg&w=1000)Jul-21: [Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1920x1080.jpg&w=1000)Jul-22: [Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_1920x1080.jpg&w=1000)Jul-23: [Pink dahlia flower (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_UHD.jpg)<br><br>

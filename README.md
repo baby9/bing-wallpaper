@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_1920x1080.jpg&w=1000)Jul-23: [Pink dahlia flower (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1920x1080.jpg&w=1000)Jul-22: [Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1920x1080.jpg&w=1000)Jul-21: [Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_1920x1080.jpg&w=1000)Jul-20: [Moon and Earth captured by the Artemis II crew (© NASA)](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_1920x1080.jpg&w=1000)Jun-26: [The River Thames, London, England (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_EN-US6783349970_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_1920x1080.jpg&w=1000)Jun-25: [Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_EN-US6561229456_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BFPollin_EN-US6519187095_1920x1080.jpg&w=1000)Jun-24: [Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.Fujisan_EN-US6479372200_1920x1080.jpg&w=1000)Jun-23: [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg)<br><br>
