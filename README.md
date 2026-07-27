@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1920x1080.jpg&w=1000)Jul-27: [Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1920x1080.jpg&w=1000)Jul-26: [Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1920x1080.jpg&w=1000)Jul-25: [Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1920x1080.jpg&w=1000)Jul-24: [Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1920x1080.jpg&w=1000)Jun-30: [Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1920x1080.jpg&w=1000)Jun-29: [Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_1920x1080.jpg&w=1000)Jun-28: [Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_EN-US8982109543_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_1920x1080.jpg&w=1000)Jun-27: [Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-US8247496696_UHD.jpg)<br><br>
