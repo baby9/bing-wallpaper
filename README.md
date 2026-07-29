@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1920x1080.jpg&w=1000)Jul-29: [A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1920x1080.jpg&w=1000)Jul-28: [A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1920x1080.jpg&w=1000)Jul-27: [Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1920x1080.jpg&w=1000)Jul-26: [Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1920x1080.jpg&w=1000)Jul-02: [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1920x1080.jpg&w=1000)Jul-01: [Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_1920x1080.jpg&w=1000)Jun-30: [Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_EN-US2240704874_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_1920x1080.jpg&w=1000)Jun-29: [Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_EN-US1491116478_UHD.jpg)<br><br>
