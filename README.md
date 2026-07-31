@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1920x1080.jpg&w=1000)Jul-31: [Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1920x1080.jpg&w=1000)Jul-30: [Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1920x1080.jpg&w=1000)Jul-29: [A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1920x1080.jpg&w=1000)Jul-28: [A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1920x1080.jpg&w=1000)Jul-04: [Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1920x1080.jpg&w=1000)Jul-03: [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_1920x1080.jpg&w=1000)Jul-02: [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_1920x1080.jpg&w=1000)Jul-01: [Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_EN-US2499621341_UHD.jpg)<br><br>
