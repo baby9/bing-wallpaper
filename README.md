@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1920x1080.jpg&w=1000)Aug-02: [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1920x1080.jpg&w=1000)Aug-01: [A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1920x1080.jpg&w=1000)Jul-31: [Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1920x1080.jpg&w=1000)Jul-30: [Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1920x1080.jpg&w=1000)Jul-06: [Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1920x1080.jpg&w=1000)Jul-05: [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_1920x1080.jpg&w=1000)Jul-04: [Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)](https://www.bing.com/th?id=OHR.LibertyHall_EN-US2562041614_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_1920x1080.jpg&w=1000)Jul-03: [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-US2315956275_UHD.jpg)<br><br>
