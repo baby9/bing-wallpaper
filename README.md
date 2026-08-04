@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1920x1080.jpg&w=1000)Aug-04: [Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1920x1080.jpg&w=1000)Aug-03: [Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1920x1080.jpg&w=1000)Aug-02: [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1920x1080.jpg&w=1000)Aug-01: [A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_1920x1080.jpg&w=1000)Jul-08: [Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_1920x1080.jpg&w=1000)Jul-07: [Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-US3433249651_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_1920x1080.jpg&w=1000)Jul-06: [Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-US3071727282_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_1920x1080.jpg&w=1000)Jul-05: [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-US2831933520_UHD.jpg)<br><br>
