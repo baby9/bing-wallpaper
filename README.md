@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1920x1080.jpg&w=1000)Aug-09: [Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_1920x1080.jpg&w=1000)Aug-08: [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_1920x1080.jpg&w=1000)Aug-07: [Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_1920x1080.jpg&w=1000)Aug-06: [Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)](https://www.bing.com/th?id=OHR.MaraCrossing_EN-US8682968377_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_1920x1080.jpg&w=1000)Jul-13: [Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_1920x1080.jpg&w=1000)Jul-12: [Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_EN-US8982810797_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_1920x1080.jpg&w=1000)Jul-11: [Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_EN-US7890619884_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_1920x1080.jpg&w=1000)Jul-10: [Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg)<br><br>
