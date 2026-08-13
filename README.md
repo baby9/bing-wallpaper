@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1920x1080.jpg&w=1000)Aug-13: [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&w=1000)Aug-12: [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1920x1080.jpg&w=1000)Aug-11: [Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SandPath_EN-US3759872156_1920x1080.jpg&w=1000)Aug-10: [Joshua Tree National Park, California (© JJ Landscapes/Getty Images)](https://www.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&w=1000)Jul-17: [Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&w=1000)Jul-16: [Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1920x1080.jpg&w=1000)Jul-15: [Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LemonShark_EN-US9828936448_1920x1080.jpg&w=1000)Jul-14: [Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg)<br><br>
