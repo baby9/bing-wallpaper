@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1920x1080.jpg&w=1000)Aug-14: [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1920x1080.jpg&w=1000)Aug-13: [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&w=1000)Aug-12: [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1920x1080.jpg&w=1000)Aug-11: [Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1920x1080.jpg&w=1000)Jul-18: [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&w=1000)Jul-17: [Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&w=1000)Jul-16: [Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_1920x1080.jpg&w=1000)Jul-15: [Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg)<br><br>
