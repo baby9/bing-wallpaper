@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1920x1080.jpg&w=1000)Aug-15: [Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1920x1080.jpg&w=1000)Aug-14: [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1920x1080.jpg&w=1000)Aug-13: [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&w=1000)Aug-12: [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1920x1080.jpg&w=1000)Jul-19: [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_1920x1080.jpg&w=1000)Jul-18: [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_1920x1080.jpg&w=1000)Jul-17: [Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_1920x1080.jpg&w=1000)Jul-16: [Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg)<br><br>
