@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1920x1080.jpg&w=1000)Aug-18: [Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1920x1080.jpg&w=1000)Aug-17: [Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1920x1080.jpg&w=1000)Aug-16: [Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1920x1080.jpg&w=1000)Aug-15: [Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1920x1080.jpg&w=1000)Jul-22: [Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_1920x1080.jpg&w=1000)Jul-21: [Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_EN-US1116829215_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_1920x1080.jpg&w=1000)Jul-20: [Moon and Earth captured by the Artemis II crew (© NASA)](https://www.bing.com/th?id=OHR.Artemis_EN-US0683925849_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_1920x1080.jpg&w=1000)Jul-19: [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_EN-US3193611104_UHD.jpg)<br><br>
