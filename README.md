@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1920x1080.jpg&w=1000)Aug-21: [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1920x1080.jpg&w=1000)Aug-20: [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1920x1080.jpg&w=1000)Aug-19: [NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)](https://www.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1920x1080.jpg&w=1000)Aug-18: [Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1920x1080.jpg&w=1000)Jul-25: [Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1920x1080.jpg&w=1000)Jul-24: [Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_1920x1080.jpg&w=1000)Jul-23: [Pink dahlia flower (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_EN-US1957205704_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_1920x1080.jpg&w=1000)Jul-22: [Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_EN-US1824657819_UHD.jpg)<br><br>
