@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1920x1080.jpg&w=1000)Aug-23: [Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1920x1080.jpg&w=1000)Aug-22: [Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1920x1080.jpg&w=1000)Aug-21: [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1920x1080.jpg&w=1000)Aug-20: [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_1920x1080.jpg&w=1000)Jul-27: [Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-US3297949501_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_1920x1080.jpg&w=1000)Jul-26: [Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-US2034025633_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_1920x1080.jpg&w=1000)Jul-25: [Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_EN-US1635715019_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_1920x1080.jpg&w=1000)Jul-24: [Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_EN-US0364264116_UHD.jpg)<br><br>
