@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&w=1000)Aug-27: [Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1920x1080.jpg&w=1000)Aug-26: [Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1920x1080.jpg&w=1000)Aug-25: [Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1920x1080.jpg&w=1000)Aug-24: [Brooklyn Bridge, New York City (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1920x1080.jpg&w=1000)Jul-31: [Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_1920x1080.jpg&w=1000)Jul-30: [Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_EN-US6947714656_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_1920x1080.jpg&w=1000)Jul-29: [A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_EN-US4918106900_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_1920x1080.jpg&w=1000)Jul-28: [A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_EN-US3809417919_UHD.jpg)<br><br>

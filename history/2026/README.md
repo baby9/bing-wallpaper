@@ -236,3 +236,4 @@
 ![](https://www.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1920x1080.jpg&w=1000)Aug-24: [Brooklyn Bridge, New York City (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1920x1080.jpg&w=1000)Aug-25: [Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1920x1080.jpg&w=1000)Aug-26: [Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&w=1000)Aug-27: [Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg)<br><br>
