@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&w=1000)Aug-30: [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1920x1080.jpg&w=1000)Aug-29: [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1920x1080.jpg&w=1000)Aug-28: [Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&w=1000)Aug-27: [Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1920x1080.jpg&w=1000)Aug-03: [Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1920x1080.jpg&w=1000)Aug-02: [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_1920x1080.jpg&w=1000)Aug-01: [A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_EN-US4126737972_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_1920x1080.jpg&w=1000)Jul-31: [Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_EN-US9403114082_UHD.jpg)<br><br>
