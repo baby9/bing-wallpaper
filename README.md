@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg&w=1000)Sep-01: [Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1920x1080.jpg&w=1000)Aug-31: [Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&w=1000)Aug-30: [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1920x1080.jpg&w=1000)Aug-29: [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_1920x1080.jpg&w=1000)Aug-05: [Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_EN-US8380353742_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_1920x1080.jpg&w=1000)Aug-04: [Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-US7873975586_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_1920x1080.jpg&w=1000)Aug-03: [Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_EN-US5373607495_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_1920x1080.jpg&w=1000)Aug-02: [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-US4898215906_UHD.jpg)<br><br>
