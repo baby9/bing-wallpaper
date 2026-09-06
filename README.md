@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1920x1080.jpg&w=1000)Sep-06: [Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1920x1080.jpg&w=1000)Sep-05: [Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1920x1080.jpg&w=1000)Sep-04: [Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1920x1080.jpg&w=1000)Sep-03: [Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SandPath_EN-US3759872156_1920x1080.jpg&w=1000)Aug-10: [Joshua Tree National Park, California (© JJ Landscapes/Getty Images)](https://www.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1920x1080.jpg&w=1000)Aug-09: [Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_1920x1080.jpg&w=1000)Aug-08: [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_1920x1080.jpg&w=1000)Aug-07: [Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_EN-US2748515593_UHD.jpg)<br><br>
