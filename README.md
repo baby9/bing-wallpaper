@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_1920x1080.jpg&w=1000)Sep-08: [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_1920x1080.jpg&w=1000)Sep-07: ['Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)](https://www.bing.com/th?id=OHR.RalphStackpole_EN-US4463800234_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_1920x1080.jpg&w=1000)Sep-06: [Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_EN-US4295341714_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_1920x1080.jpg&w=1000)Sep-05: [Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_EN-US3119017947_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&w=1000)Aug-12: [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_1920x1080.jpg&w=1000)Aug-11: [Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SandPath_EN-US3759872156_1920x1080.jpg&w=1000)Aug-10: [Joshua Tree National Park, California (© JJ Landscapes/Getty Images)](https://www.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_1920x1080.jpg&w=1000)Aug-09: [Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg)<br><br>
