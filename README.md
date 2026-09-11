@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_1920x1080.jpg&w=1000)Sep-11: [The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Olvera_EN-US4712443253_1920x1080.jpg&w=1000)Sep-10: [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_1920x1080.jpg&w=1000)Sep-09: [Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_1920x1080.jpg&w=1000)Sep-08: [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_EN-US4535769514_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1920x1080.jpg&w=1000)Aug-15: [Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1920x1080.jpg&w=1000)Aug-14: [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_1920x1080.jpg&w=1000)Aug-13: [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_1920x1080.jpg&w=1000)Aug-12: [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)<br><br>
