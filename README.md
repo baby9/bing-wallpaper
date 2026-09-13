@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1920x1080.jpg&w=1000)Sep-13: [Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1920x1080.jpg&w=1000)Sep-12: [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_1920x1080.jpg&w=1000)Sep-11: [The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Olvera_EN-US4712443253_1920x1080.jpg&w=1000)Sep-10: [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1920x1080.jpg&w=1000)Aug-17: [Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1920x1080.jpg&w=1000)Aug-16: [Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_1920x1080.jpg&w=1000)Aug-15: [Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_EN-US5250331985_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_1920x1080.jpg&w=1000)Aug-14: [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg)<br><br>
