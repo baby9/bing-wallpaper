@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1920x1080.jpg&w=1000)Sep-15: [Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)](https://www.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1920x1080.jpg&w=1000)Sep-14: [Field of kochia plants, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_1920x1080.jpg&w=1000)Sep-13: [Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_EN-US4897144498_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1920x1080.jpg&w=1000)Sep-12: [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1920x1080.jpg&w=1000)Aug-19: [NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)](https://www.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1920x1080.jpg&w=1000)Aug-18: [Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_1920x1080.jpg&w=1000)Aug-17: [Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-US6302440247_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_1920x1080.jpg&w=1000)Aug-16: [Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_EN-US5729358123_UHD.jpg)<br><br>
