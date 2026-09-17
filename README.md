@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_1920x1080.jpg&w=1000)Sep-17: [Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1920x1080.jpg&w=1000)Sep-16: [Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1920x1080.jpg&w=1000)Sep-15: [Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)](https://www.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_1920x1080.jpg&w=1000)Sep-14: [Field of kochia plants, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_EN-US5037126636_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1920x1080.jpg&w=1000)Aug-21: [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1920x1080.jpg&w=1000)Aug-20: [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_1920x1080.jpg&w=1000)Aug-19: [NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)](https://www.bing.com/th?id=OHR.BrewsterXF2A_EN-US0417477370_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_1920x1080.jpg&w=1000)Aug-18: [Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_EN-US0340289339_UHD.jpg)<br><br>
