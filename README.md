@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1920x1080.jpg&w=1000)Sep-19: [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1920x1080.jpg&w=1000)Sep-18: [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_1920x1080.jpg&w=1000)Sep-17: [Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1920x1080.jpg&w=1000)Sep-16: [Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_1920x1080.jpg&w=1000)Aug-23: [Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_EN-US2844742219_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_1920x1080.jpg&w=1000)Aug-22: [Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_EN-US2760688799_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_1920x1080.jpg&w=1000)Aug-21: [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-US2643379571_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_1920x1080.jpg&w=1000)Aug-20: [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-US0537229184_UHD.jpg)<br><br>
