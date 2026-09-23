@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1920x1080.jpg&w=1000)Sep-23: [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1920x1080.jpg&w=1000)Sep-22: [Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1920x1080.jpg&w=1000)Sep-21: [Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1920x1080.jpg&w=1000)Sep-20: [Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&w=1000)Aug-27: [Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_1920x1080.jpg&w=1000)Aug-26: [Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_1920x1080.jpg&w=1000)Aug-25: [Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BKBridge_EN-US2923468858_1920x1080.jpg&w=1000)Aug-24: [Brooklyn Bridge, New York City (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg)<br><br>
