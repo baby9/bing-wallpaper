@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1920x1080.jpg&w=1000)Sep-26: [Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1920x1080.jpg&w=1000)Sep-25: [Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_1920x1080.jpg&w=1000)Sep-24: [Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_EN-US9261454857_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1920x1080.jpg&w=1000)Sep-23: [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&w=1000)Aug-30: [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1920x1080.jpg&w=1000)Aug-29: [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_1920x1080.jpg&w=1000)Aug-28: [Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_EN-US3527235033_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_1920x1080.jpg&w=1000)Aug-27: [Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_EN-US3401664434_UHD.jpg)<br><br>
