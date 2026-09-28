@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1920x1080.jpg&w=1000)Sep-28: [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1920x1080.jpg&w=1000)Sep-27: [Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1920x1080.jpg&w=1000)Sep-26: [Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1920x1080.jpg&w=1000)Sep-25: [Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg&w=1000)Sep-01: [Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1920x1080.jpg&w=1000)Aug-31: [Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&w=1000)Aug-30: [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_1920x1080.jpg&w=1000)Aug-29: [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_EN-US3600536393_UHD.jpg)<br><br>
