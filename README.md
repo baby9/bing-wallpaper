@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1920x1080.jpg&w=1000)Sep-29: [The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1920x1080.jpg&w=1000)Sep-28: [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1920x1080.jpg&w=1000)Sep-27: [Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1920x1080.jpg&w=1000)Sep-26: [Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1920x1080.jpg&w=1000)Sep-02: [Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg&w=1000)Sep-01: [Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_1920x1080.jpg&w=1000)Aug-31: [Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_1920x1080.jpg&w=1000)Aug-30: [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg)<br><br>
