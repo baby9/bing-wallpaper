@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1920x1080.jpg&w=1000)Oct-01: [Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1920x1080.jpg&w=1000)Sep-30: [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1920x1080.jpg&w=1000)Sep-29: [The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1920x1080.jpg&w=1000)Sep-28: [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_1920x1080.jpg&w=1000)Sep-04: [Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_EN-US3028839945_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_1920x1080.jpg&w=1000)Sep-03: [Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_EN-US4070936347_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_1920x1080.jpg&w=1000)Sep-02: [Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_EN-US3987062531_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_1920x1080.jpg&w=1000)Sep-01: [Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg)<br><br>
