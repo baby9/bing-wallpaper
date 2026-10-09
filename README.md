@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1920x1080.jpg&w=1000)Oct-09: [View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1920x1080.jpg&w=1000)Oct-08: [Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1920x1080.jpg&w=1000)Oct-07: [Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1920x1080.jpg&w=1000)Oct-06: [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_1920x1080.jpg&w=1000)Sep-12: [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_EN-US4802395270_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_1920x1080.jpg&w=1000)Sep-11: [The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)](https://www.bing.com/th?id=OHR.Flight93_EN-US5966783443_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Olvera_EN-US4712443253_1920x1080.jpg&w=1000)Sep-10: [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_EN-US4712443253_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_1920x1080.jpg&w=1000)Sep-09: [Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_EN-US4620523183_UHD.jpg)<br><br>
