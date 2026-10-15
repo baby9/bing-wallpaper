@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&w=1000)Oct-15: [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1920x1080.jpg&w=1000)Oct-14: [Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1920x1080.jpg&w=1000)Oct-13: [Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1920x1080.jpg&w=1000)Oct-12: [White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1920x1080.jpg&w=1000)Sep-18: [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_1920x1080.jpg&w=1000)Sep-17: [Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_1920x1080.jpg&w=1000)Sep-16: [Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_EN-US5222104616_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.FortUnion_EN-US5138724452_1920x1080.jpg&w=1000)Sep-15: [Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)](https://www.bing.com/th?id=OHR.FortUnion_EN-US5138724452_UHD.jpg)<br><br>
