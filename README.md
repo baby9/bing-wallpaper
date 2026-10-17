@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1920x1080.jpg&w=1000)Oct-17: [Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1920x1080.jpg&w=1000)Oct-16: [Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&w=1000)Oct-15: [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1920x1080.jpg&w=1000)Oct-14: [Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1920x1080.jpg&w=1000)Sep-20: [Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1920x1080.jpg&w=1000)Sep-19: [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1920x1080.jpg&w=1000)Sep-18: [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_1920x1080.jpg&w=1000)Sep-17: [Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_EN-US5299702509_UHD.jpg)<br><br>
