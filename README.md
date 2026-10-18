@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1920x1080.jpg&w=1000)Oct-18: [Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1920x1080.jpg&w=1000)Oct-17: [Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1920x1080.jpg&w=1000)Oct-16: [Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&w=1000)Oct-15: [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1920x1080.jpg&w=1000)Sep-21: [Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1920x1080.jpg&w=1000)Sep-20: [Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_1920x1080.jpg&w=1000)Sep-19: [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-US6200857270_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_1920x1080.jpg&w=1000)Sep-18: [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-US6112068451_UHD.jpg)<br><br>
