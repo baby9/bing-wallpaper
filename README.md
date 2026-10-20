@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1920x1080.jpg&w=1000)Oct-20: [Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1920x1080.jpg&w=1000)Oct-19: [Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1920x1080.jpg&w=1000)Oct-18: [Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1920x1080.jpg&w=1000)Oct-17: [Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_1920x1080.jpg&w=1000)Sep-23: [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FallAspens_EN-US7211031109_1920x1080.jpg&w=1000)Sep-22: [Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_1920x1080.jpg&w=1000)Sep-21: [Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_EN-US6710084372_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_1920x1080.jpg&w=1000)Sep-20: [Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_EN-US6532307523_UHD.jpg)<br><br>
