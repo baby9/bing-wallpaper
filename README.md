@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1920x1080.jpg&w=1000)Oct-25: [Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1920x1080.jpg&w=1000)Oct-24: [Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_1920x1080.jpg&w=1000)Oct-23: [Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1920x1080.jpg&w=1000)Oct-22: [Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1920x1080.jpg&w=1000)Sep-28: [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1920x1080.jpg&w=1000)Sep-27: [Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_1920x1080.jpg&w=1000)Sep-26: [Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_EN-US9429791451_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_1920x1080.jpg&w=1000)Sep-25: [Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_EN-US9341405351_UHD.jpg)<br><br>
