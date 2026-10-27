@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1920x1080.jpg&w=1000)Oct-27: [A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1920x1080.jpg&w=1000)Oct-26: [Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1920x1080.jpg&w=1000)Oct-25: [Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_1920x1080.jpg&w=1000)Oct-24: [Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1920x1080.jpg&w=1000)Sep-30: [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1920x1080.jpg&w=1000)Sep-29: [The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_1920x1080.jpg&w=1000)Sep-28: [Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_EN-US9930812541_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_1920x1080.jpg&w=1000)Sep-27: [Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_EN-US9587426678_UHD.jpg)<br><br>
