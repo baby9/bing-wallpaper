@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_1920x1080.jpg&w=1000)Oct-29: [Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1920x1080.jpg&w=1000)Oct-28: [Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1920x1080.jpg&w=1000)Oct-27: [A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1920x1080.jpg&w=1000)Oct-26: [Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_1920x1080.jpg&w=1000)Oct-02: [Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)](https://www.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_1920x1080.jpg&w=1000)Oct-01: [Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_1920x1080.jpg&w=1000)Sep-30: [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_1920x1080.jpg&w=1000)Sep-29: [The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_EN-US0047556055_UHD.jpg)<br><br>
