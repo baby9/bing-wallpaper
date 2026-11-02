@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1920x1080.jpg&w=1000)Nov-02: [Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1920x1080.jpg&w=1000)Nov-01: [Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)](https://www.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1920x1080.jpg&w=1000)Oct-31: [St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1920x1080.jpg&w=1000)Oct-30: [Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1920x1080.jpg&w=1000)Oct-06: [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_1920x1080.jpg&w=1000)Oct-05: [Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ArtemisRocket_EN-US5256990037_1920x1080.jpg&w=1000)Oct-04: [Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_EN-US5256990037_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_1920x1080.jpg&w=1000)Oct-03: [Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_EN-US5133524829_UHD.jpg)<br><br>
