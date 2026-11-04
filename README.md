@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1920x1080.jpg&w=1000)Nov-04: [People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1920x1080.jpg&w=1000)Nov-03: [Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1920x1080.jpg&w=1000)Nov-02: [Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_1920x1080.jpg&w=1000)Nov-01: [Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)](https://www.bing.com/th?id=OHR.NativeBaskets_EN-US0205712064_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1920x1080.jpg&w=1000)Oct-08: [Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1920x1080.jpg&w=1000)Oct-07: [Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1920x1080.jpg&w=1000)Oct-06: [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_1920x1080.jpg&w=1000)Oct-05: [Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg)<br><br>
