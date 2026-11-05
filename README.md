@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1920x1080.jpg&w=1000)Nov-05: [Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)](https://www.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_1920x1080.jpg&w=1000)Nov-04: [People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_EN-US0467722422_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_1920x1080.jpg&w=1000)Nov-03: [Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_EN-US6636326357_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_1920x1080.jpg&w=1000)Nov-02: [Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_EN-US0297833232_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1920x1080.jpg&w=1000)Oct-09: [View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_1920x1080.jpg&w=1000)Oct-08: [Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteOctopus_EN-US5694987016_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_1920x1080.jpg&w=1000)Oct-07: [Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_1920x1080.jpg&w=1000)Oct-06: [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg)<br><br>
