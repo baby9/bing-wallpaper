@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1920x1080.jpg&w=1000)Nov-08: [Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_1920x1080.jpg&w=1000)Nov-07: [A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_EN-US0710175615_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_1920x1080.jpg&w=1000)Nov-06: [Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.PipiwaiTrail_EN-US0631882545_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_1920x1080.jpg&w=1000)Nov-05: [Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)](https://www.bing.com/th?id=OHR.StileCrossing_EN-US9052435517_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1920x1080.jpg&w=1000)Oct-12: [White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_1920x1080.jpg&w=1000)Oct-11: [Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_1920x1080.jpg&w=1000)Oct-10: [Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_1920x1080.jpg&w=1000)Oct-09: [View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg)<br><br>
