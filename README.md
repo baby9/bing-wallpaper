@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1920x1080.jpg&w=1000)Nov-11: [American flags in a public park in upstate New York (© Matt Champlin/Getty Images)](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1920x1080.jpg&w=1000)Nov-10: [Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_1920x1080.jpg&w=1000)Nov-09: [Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)](https://www.bing.com/th?id=OHR.TrianaSpain_EN-US0872031458_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_1920x1080.jpg&w=1000)Nov-08: [Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_EN-US0788074051_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&w=1000)Oct-15: [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1920x1080.jpg&w=1000)Oct-14: [Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_1920x1080.jpg&w=1000)Oct-13: [Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_EN-US6255909048_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_1920x1080.jpg&w=1000)Oct-12: [White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.WhiteHouse_EN-US6161912809_UHD.jpg)<br><br>
