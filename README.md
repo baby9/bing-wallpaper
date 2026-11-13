@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1920x1080.jpg&w=1000)Nov-13: [Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1920x1080.jpg&w=1000)Nov-12: [North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1920x1080.jpg&w=1000)Nov-11: [American flags in a public park in upstate New York (© Matt Champlin/Getty Images)](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_1920x1080.jpg&w=1000)Nov-10: [Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_EN-US0952497192_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1920x1080.jpg&w=1000)Oct-17: [Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1920x1080.jpg&w=1000)Oct-16: [Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_1920x1080.jpg&w=1000)Oct-15: [View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_EN-US7757698922_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_1920x1080.jpg&w=1000)Oct-14: [Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_EN-US6354038755_UHD.jpg)<br><br>
