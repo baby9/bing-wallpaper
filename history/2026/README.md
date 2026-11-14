@@ -315,3 +315,4 @@
 ![](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_1920x1080.jpg&w=1000)Nov-11: [American flags in a public park in upstate New York (© Matt Champlin/Getty Images)](https://www.bing.com/th?id=OHR.SunsetFlags_EN-US1046151448_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1920x1080.jpg&w=1000)Nov-12: [North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1920x1080.jpg&w=1000)Nov-13: [Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1920x1080.jpg&w=1000)Nov-14: [Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg)<br><br>
