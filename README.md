@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_1920x1080.jpg&w=1000)Nov-15: [Frozen azalea with red leaves (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BlueHK_EN-US7870996687_1920x1080.jpg&w=1000)Nov-14: [Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.BlueHK_EN-US7870996687_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_1920x1080.jpg&w=1000)Nov-13: [Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_EN-US3455540217_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_1920x1080.jpg&w=1000)Nov-12: [North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_EN-US1170338293_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_1920x1080.jpg&w=1000)Oct-19: [Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_EN-US6714393168_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_1920x1080.jpg&w=1000)Oct-18: [Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_EN-US6620614213_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_1920x1080.jpg&w=1000)Oct-17: [Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_EN-US6137200151_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_1920x1080.jpg&w=1000)Oct-16: [Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_EN-US3953128777_UHD.jpg)<br><br>
