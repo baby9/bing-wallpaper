@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1920x1080.jpg&w=1000)Nov-19: [The ](https://www.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1920x1080.jpg&w=1000)Nov-18: [Pair of barn owls (© Zahoor Salmi/Getty Images)](https://www.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1920x1080.jpg&w=1000)Nov-17: [Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_1920x1080.jpg&w=1000)Nov-16: [Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_1920x1080.jpg&w=1000)Oct-23: [Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_1920x1080.jpg&w=1000)Oct-22: [Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_1920x1080.jpg&w=1000)Oct-21: [Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_1920x1080.jpg&w=1000)Oct-20: [Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_EN-US6816754257_UHD.jpg)<br><br>
