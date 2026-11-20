@@ -321,3 +321,4 @@
 ![](https://www.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_1920x1080.jpg&w=1000)Nov-17: [Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_EN-US2240500417_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_1920x1080.jpg&w=1000)Nov-18: [Pair of barn owls (© Zahoor Salmi/Getty Images)](https://www.bing.com/th?id=OHR.BarnOwlsUnite_EN-US9661992435_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_1920x1080.jpg&w=1000)Nov-19: [The \](https://www.bing.com/th?id=OHR.KnowledgeSculpture_EN-US9746703110_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.Megaptera_EN-US1728719939_1920x1080.jpg&w=1000)Nov-20: [Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)](https://www.bing.com/th?id=OHR.Megaptera_EN-US1728719939_UHD.jpg)<br><br>
