@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1920x1080.jpg&w=1000)Nov-24: [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_1920x1080.jpg&w=1000)Nov-23: [Fiddlehead fern (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_1920x1080.jpg&w=1000)Nov-22: [The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_EN-US0130271816_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.RedNice_EN-US9978351403_1920x1080.jpg&w=1000)Nov-21: [Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_EN-US9978351403_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1920x1080.jpg&w=1000)Oct-28: [Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_1920x1080.jpg&w=1000)Oct-27: [A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.HangingBat_EN-US7714746725_1920x1080.jpg&w=1000)Oct-26: [Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_1920x1080.jpg&w=1000)Oct-25: [Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg)<br><br>
