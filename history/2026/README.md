@@ -327,3 +327,4 @@
 ![](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_1920x1080.jpg&w=1000)Nov-23: [Fiddlehead fern (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_EN-US6307771770_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1920x1080.jpg&w=1000)Nov-24: [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_1920x1080.jpg&w=1000)Nov-25: [Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg)<br><br>
+![](https://www.bing.com/th?id=OHR.WildTom_EN-US1069249609_1920x1080.jpg&w=1000)Nov-26: [Two wild tom turkeys (© davidsdodd/Getty Images)](https://www.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg)<br><br>
