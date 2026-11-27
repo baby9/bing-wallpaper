@@ -1,4 +1,5 @@
 ## Bing Wallpaper
+![](https://www.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_1920x1080.jpg&w=1000)Nov-27: [Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_EN-US6254374163_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.WildTom_EN-US1069249609_1920x1080.jpg&w=1000)Nov-26: [Two wild tom turkeys (© davidsdodd/Getty Images)](https://www.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_1920x1080.jpg&w=1000)Nov-25: [Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_1920x1080.jpg&w=1000)Nov-24: [Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_EN-US7053432564_UHD.jpg)<br><br>
@@ -28,4 +29,3 @@
 ![](https://www.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_1920x1080.jpg&w=1000)Oct-31: [St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_EN-US0115213682_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_1920x1080.jpg&w=1000)Oct-30: [Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_EN-US9795571462_UHD.jpg)<br><br>
 ![](https://www.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_1920x1080.jpg&w=1000)Oct-29: [Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_EN-US9568662876_UHD.jpg)<br><br>
-![](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_1920x1080.jpg&w=1000)Oct-28: [Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_EN-US9492527404_UHD.jpg)<br><br>
